@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the men of Israel had sworn at Mizpah, "No one of us shall give his daughter in marriage to Benjamin." 
 
@@ -78,7 +77,7 @@ And the people of Benjamin did so and took their wives, according to their numbe
 And the people of Israel departed from there at that time, every man to his tribe and family, and they went out from there every man to his inheritance. 
 
 ###### 25 
-In those days there was no king in Israel. Everyone did what was right in his own eyes. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In those days there was no king in Israel. Everyone did what was right in his own eyes. 
 
 ***
 

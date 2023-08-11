@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Jude, a servant of Jesus Christ and brother of James, To those who are called, beloved in God the Father and kept for Jesus Christ: 
 
@@ -78,7 +77,7 @@ save others by snatching them out of the fire; to others show mercy with fear, h
 Now to him who is able to keep you from stumbling and to present you blameless before the presence of his glory with great joy, 
 
 ###### 25 
-to the only God, our Savior, through Jesus Christ our Lord, be glory, majesty, dominion, and authority, before all time and now and forever. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+to the only God, our Savior, through Jesus Christ our Lord, be glory, majesty, dominion, and authority, before all time and now and forever. Amen. 
 
 ***
 

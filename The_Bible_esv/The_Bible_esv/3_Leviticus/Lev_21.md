@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD said to Moses, "Speak to the priests, the sons of Aaron, and say to them, No one shall make himself unclean for the dead among his people, 
 
@@ -75,7 +74,7 @@ He may eat the bread of his God, both of the most holy and of the holy things,
 but he shall not go through the veil or approach the altar, because he has a blemish, that he may not profane my sanctuaries, for I am the LORD who sanctifies them." 
 
 ###### 24 
-So Moses spoke to Aaron and to his sons and to all the people of Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Moses spoke to Aaron and to his sons and to all the people of Israel. 
 
 ***
 

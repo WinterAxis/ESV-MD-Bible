@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD: "Behold, I will stir up the spirit of a destroyer against Babylon, against the inhabitants of Leb-kamai, 
 
@@ -195,7 +194,7 @@ and say, 'O LORD, you have said concerning this place that you will cut it off, 
 When you finish reading this book, tie a stone to it and cast it into the midst of the Euphrates, 
 
 ###### 64 
-and say, 'Thus shall Babylon sink, to rise no more, because of the disaster that I am bringing upon her, and they shall become exhausted.'" Thus far are the words of Jeremiah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and say, 'Thus shall Babylon sink, to rise no more, because of the disaster that I am bringing upon her, and they shall become exhausted.'" Thus far are the words of Jeremiah. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -96,7 +95,7 @@ But if the woman has not defiled herself and is clean, then she shall be free an
 or when the spirit of jealousy comes over a man and he is jealous of his wife. Then he shall set the woman before the LORD, and the priest shall carry out for her all this law. 
 
 ###### 31 
-The man shall be free from iniquity, but the woman shall bear her iniquity." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The man shall be free from iniquity, but the woman shall bear her iniquity." 
 
 ***
 

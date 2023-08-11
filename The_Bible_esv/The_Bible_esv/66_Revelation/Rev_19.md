@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this I heard what seemed to be the loud voice of a great multitude in heaven, crying out, "Hallelujah! Salvation and glory and power belong to our God, 
 
@@ -66,7 +65,7 @@ And I saw the beast and the kings of the earth with their armies gathered to mak
 And the beast was captured, and with it the false prophet who in its presence had done the signs by which he deceived those who had received the mark of the beast and those who worshiped its image. These two were thrown alive into the lake of fire that burns with sulfur. 
 
 ###### 21 
-And the rest were slain by the sword that came from the mouth of him who was sitting on the horse, and all the birds were gorged with their flesh. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the rest were slain by the sword that came from the mouth of him who was sitting on the horse, and all the birds were gorged with their flesh. 
 
 ***
 

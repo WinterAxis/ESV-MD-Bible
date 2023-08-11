@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this David inquired of the LORD, "Shall I go up into any of the cities of Judah?" And the LORD said to him, "Go up." David said, "To which shall I go up?" And he said, "To Hebron." 
 
@@ -99,7 +98,7 @@ Joab returned from the pursuit of Abner. And when he had gathered all the people
 But the servants of David had struck down of Benjamin 360 of Abner's men. 
 
 ###### 32 
-And they took up Asahel and buried him in the tomb of his father, which was at Bethlehem. And Joab and his men marched all night, and the day broke upon them at Hebron. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they took up Asahel and buried him in the tomb of his father, which was at Bethlehem. And Joab and his men marched all night, and the day broke upon them at Hebron. 
 
 ***
 

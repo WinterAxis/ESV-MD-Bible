@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to Joshua, 
 
@@ -30,7 +29,7 @@ So they set apart Kedesh in Galilee in the hill country of Naphtali, and Shechem
 And beyond the Jordan east of Jericho, they appointed Bezer in the wilderness on the tableland, from the tribe of Reuben, and Ramoth in Gilead, from the tribe of Gad, and Golan in Bashan, from the tribe of Manasseh. 
 
 ###### 9 
-These were the cities designated for all the people of Israel and for the stranger sojourning among them, that anyone who killed a person without intent could flee there, so that he might not die by the hand of the avenger of blood, till he stood before the congregation. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These were the cities designated for all the people of Israel and for the stranger sojourning among them, that anyone who killed a person without intent could flee there, so that he might not die by the hand of the avenger of blood, till he stood before the congregation. 
 
 ***
 

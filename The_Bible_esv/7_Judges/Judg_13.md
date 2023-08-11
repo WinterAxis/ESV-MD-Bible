@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the people of Israel again did what was evil in the sight of the LORD, so the LORD gave them into the hand of the Philistines for forty years. 
 
@@ -78,7 +77,7 @@ But his wife said to him, "If the LORD had meant to kill us, he would not have a
 And the woman bore a son and called his name Samson. And the young man grew, and the LORD blessed him. 
 
 ###### 25 
-And the Spirit of the LORD began to stir him in Mahaneh-dan, between Zorah and Eshtaol. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the Spirit of the LORD began to stir him in Mahaneh-dan, between Zorah and Eshtaol. 
 
 ***
 

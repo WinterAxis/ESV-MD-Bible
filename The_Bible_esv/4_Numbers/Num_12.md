@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Miriam and Aaron spoke against Moses because of the Cushite woman whom he had married, for he had married a Cushite woman. 
 
@@ -51,7 +50,7 @@ But the LORD said to Moses, "If her father had but spit in her face, should she 
 So Miriam was shut outside the camp seven days, and the people did not set out on the march till Miriam was brought in again. 
 
 ###### 16 
-After that the people set out from Hazeroth, and camped in the wilderness of Paran. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+After that the people set out from Hazeroth, and camped in the wilderness of Paran. 
 
 ***
 

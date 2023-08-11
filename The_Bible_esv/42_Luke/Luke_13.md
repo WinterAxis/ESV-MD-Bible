@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There were some present at that very time who told him about the Galileans whose blood Pilate had mingled with their sacrifices. 
 
@@ -108,7 +107,7 @@ Nevertheless, I must go on my way today and tomorrow and the day following, for 
 O Jerusalem, Jerusalem, the city that kills the prophets and stones those who are sent to it! How often would I have gathered your children together as a hen gathers her brood under her wings, and you were not willing! 
 
 ###### 35 
-Behold, your house is forsaken. And I tell you, you will not see me until you say, 'Blessed is he who comes in the name of the Lord!'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, your house is forsaken. And I tell you, you will not see me until you say, 'Blessed is he who comes in the name of the Lord!'" 
 
 ***
 

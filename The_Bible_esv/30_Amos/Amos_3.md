@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear this word that the LORD has spoken against you, O people of Israel, against the whole family that I brought up out of the land of Egypt: 
 
@@ -48,7 +47,7 @@ Thus says the LORD: "As the shepherd rescues from the mouth of the lion two legs
 "that on the day I punish Israel for his transgressions, I will punish the altars of Bethel, and the horns of the altar shall be cut off and fall to the ground. 
 
 ###### 15 
-I will strike the winter house along with the summer house, and the houses of ivory shall perish, and the great houses shall come to an end," declares the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will strike the winter house along with the summer house, and the houses of ivory shall perish, and the great houses shall come to an end," declares the LORD. 
 
 ***
 

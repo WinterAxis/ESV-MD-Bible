@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the third year of the reign of Jehoiakim king of Judah, Nebuchadnezzar king of Babylon came to Jerusalem and besieged it. 
 
@@ -66,7 +65,7 @@ And the king spoke with them, and among all of them none was found like Daniel, 
 And in every matter of wisdom and understanding about which the king inquired of them, he found them ten times better than all the magicians and enchanters that were in all his kingdom. 
 
 ###### 21 
-And Daniel was there until the first year of King Cyrus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Daniel was there until the first year of King Cyrus. 
 
 ***
 

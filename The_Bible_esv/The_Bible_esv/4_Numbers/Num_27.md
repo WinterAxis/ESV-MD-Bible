@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then drew near the daughters of Zelophehad the son of Hepher, son of Gilead, son of Machir, son of Manasseh, from the clans of Manasseh the son of Joseph. The names of his daughters were: Mahlah, Noah, Hoglah, Milcah, and Tirzah. 
 
@@ -72,7 +71,7 @@ And he shall stand before Eleazar the priest, who shall inquire for him by the j
 And Moses did as the LORD commanded him. He took Joshua and made him stand before Eleazar the priest and the whole congregation, 
 
 ###### 23 
-and he laid his hands on him and commissioned him as the LORD directed through Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and he laid his hands on him and commissioned him as the LORD directed through Moses. 
 
 ***
 

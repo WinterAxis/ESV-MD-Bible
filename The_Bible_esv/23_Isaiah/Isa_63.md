@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Who is this who comes from Edom, in crimsoned garments from Bozrah, he who is splendid in his apparel, marching in the greatness of his strength? "It is I, speaking in righteousness, mighty to save." 
 
@@ -60,7 +59,7 @@ O LORD, why do you make us wander from your ways and harden our heart, so that w
 Your holy people held possession for a little while; our adversaries have trampled down your sanctuary. 
 
 ###### 19 
-We have become like those over whom you have never ruled, like those who are not called by your name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+We have become like those over whom you have never ruled, like those who are not called by your name. 
 
 ***
 

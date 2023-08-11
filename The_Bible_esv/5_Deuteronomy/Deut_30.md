@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And when all these things come upon you, the blessing and the curse, which I have set before you, and you call them to mind among all the nations where the LORD your God has driven you, 
 
@@ -63,7 +62,7 @@ I declare to you today, that you shall surely perish. You shall not live long in
 I call heaven and earth to witness against you today, that I have set before you life and death, blessing and curse. Therefore choose life, that you and your offspring may live, 
 
 ###### 20 
-loving the LORD your God, obeying his voice and holding fast to him, for he is your life and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+loving the LORD your God, obeying his voice and holding fast to him, for he is your life and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them." 
 
 ***
 

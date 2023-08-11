@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, an apostle of Christ Jesus by the will of God according to the promise of the life that is in Christ Jesus, 
 
@@ -57,7 +56,7 @@ May the Lord grant mercy to the household of Onesiphorus, for he often refreshed
 but when he arrived in Rome he searched for me earnestly and found me-- 
 
 ###### 18 
-may the Lord grant him to find mercy from the Lord on that day!--and you well know all the service he rendered at Ephesus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+may the Lord grant him to find mercy from the Lord on that day!--and you well know all the service he rendered at Ephesus. 
 
 ***
 

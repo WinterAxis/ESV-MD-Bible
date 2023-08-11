@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses, saying, 
 
@@ -51,7 +50,7 @@ For the life of every creature is its blood: its blood is its life. Therefore I 
 And every person who eats what dies of itself or what is torn by beasts, whether he is a native or a sojourner, shall wash his clothes and bathe himself in water and be unclean until the evening; then he shall be clean. 
 
 ###### 16 
-But if he does not wash them or bathe his flesh, he shall bear his iniquity." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But if he does not wash them or bathe his flesh, he shall bear his iniquity." 
 
 ***
 

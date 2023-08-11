@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore, my brothers, whom I love and long for, my joy and crown, stand firm thus in the Lord, my beloved. ## Exhortation, Encouragement, and Prayer 
 
@@ -72,7 +71,7 @@ Greet every saint in Christ Jesus. The brothers who are with me greet you.
 All the saints greet you, especially those of Caesar's household. 
 
 ###### 23 
-The grace of the Lord Jesus Christ be with your spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The grace of the Lord Jesus Christ be with your spirit. 
 
 ***
 

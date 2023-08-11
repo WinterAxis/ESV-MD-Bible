@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So the LORD said to Aaron, "You and your sons and your father's house with you shall bear iniquity connected with the sanctuary, and you and your sons with you shall bear iniquity connected with your priesthood. 
 
@@ -99,7 +98,7 @@ Therefore you shall say to them, 'When you have offered from it the best of it, 
 And you may eat it in any place, you and your households, for it is your reward in return for your service in the tent of meeting. 
 
 ###### 32 
-And you shall bear no sin by reason of it, when you have contributed the best of it. But you shall not profane the holy things of the people of Israel, lest you die.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall bear no sin by reason of it, when you have contributed the best of it. But you shall not profane the holy things of the people of Israel, lest you die.'" 
 
 ***
 

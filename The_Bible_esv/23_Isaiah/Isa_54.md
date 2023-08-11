@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Sing, O barren one, who did not bear; break forth into singing and cry aloud, you who have not been in labor! For the children of the desolate one will be more than the children of her who is married," says the LORD. 
 
@@ -54,7 +53,7 @@ If anyone stirs up strife, it is not from me; whoever stirs up strife with you s
 Behold, I have created the smith who blows the fire of coals and produces a weapon for its purpose. I have also created the ravager to destroy; 
 
 ###### 17 
-no weapon that is fashioned against you shall succeed, and you shall refute every tongue that rises against you in judgment. This is the heritage of the servants of the LORD and their vindication from me, declares the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+no weapon that is fashioned against you shall succeed, and you shall refute every tongue that rises against you in judgment. This is the heritage of the servants of the LORD and their vindication from me, declares the LORD." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD: "Go down to the house of the king of Judah and speak there this word, 
 
@@ -93,7 +92,7 @@ Is this man Coniah a despised, broken pot, a vessel no one cares for? Why are he
 O land, land, land, hear the word of the LORD! 
 
 ###### 30 
-Thus says the LORD: "Write this man down as childless, a man who shall not succeed in his days, for none of his offspring shall succeed in sitting on the throne of David and ruling again in Judah." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus says the LORD: "Write this man down as childless, a man who shall not succeed in his days, for none of his offspring shall succeed in sitting on the throne of David and ruling again in Judah." 
 
 ***
 

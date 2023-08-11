@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now after this, in the reign of Artaxerxes king of Persia, Ezra the son of Seraiah, son of Azariah, son of Hilkiah, 
 
@@ -87,7 +86,7 @@ Whoever will not obey the law of your God and the law of the king, let judgment 
 Blessed be the LORD, the God of our fathers, who put such a thing as this into the heart of the king, to beautify the house of the LORD that is in Jerusalem, 
 
 ###### 28 
-and who extended to me his steadfast love before the king and his counselors, and before all the king's mighty officers. I took courage, for the hand of the LORD my God was on me, and I gathered leading men from Israel to go up with me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and who extended to me his steadfast love before the king and his counselors, and before all the king's mighty officers. I took courage, for the hand of the LORD my God was on me, and I gathered leading men from Israel to go up with me. 
 
 ***
 

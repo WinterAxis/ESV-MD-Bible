@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore we must pay much closer attention to what we have heard, lest we drift away from it. 
 
@@ -57,7 +56,7 @@ For surely it is not angels that he helps, but he helps the offspring of Abraham
 Therefore he had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest in the service of God, to make propitiation for the sins of the people. 
 
 ###### 18 
-For because he himself has suffered when tempted, he is able to help those who are being tempted. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For because he himself has suffered when tempted, he is able to help those who are being tempted. 
 
 ***
 

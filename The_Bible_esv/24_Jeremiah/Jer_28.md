@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In that same year, at the beginning of the reign of Zedekiah king of Judah, in the fifth month of the fourth year, Hananiah the son of Azzur, the prophet from Gibeon, spoke to me in the house of the LORD, in the presence of the priests and all the people, saying, 
 
@@ -54,7 +53,7 @@ And Jeremiah the prophet said to the prophet Hananiah, "Listen, Hananiah, the LO
 Therefore thus says the LORD: 'Behold, I will remove you from the face of the earth. This year you shall die, because you have uttered rebellion against the LORD.'" 
 
 ###### 17 
-In that same year, in the seventh month, the prophet Hananiah died. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In that same year, in the seventh month, the prophet Hananiah died. 
 
 ***
 

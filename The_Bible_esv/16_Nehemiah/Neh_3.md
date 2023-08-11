@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Eliashib the high priest rose up with his brothers the priests, and they built the Sheep Gate. They consecrated it and set its doors. They consecrated it as far as the Tower of the Hundred, as far as the Tower of Hananel. 
 
@@ -99,7 +98,7 @@ After him Hananiah the son of Shelemiah and Hanun the sixth son of Zalaph repair
 After him Malchijah, one of the goldsmiths, repaired as far as the house of the temple servants and of the merchants, opposite the Muster Gate, and to the upper chamber of the corner. 
 
 ###### 32 
-And between the upper chamber of the corner and the Sheep Gate the goldsmiths and the merchants repaired. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And between the upper chamber of the corner and the Sheep Gate the goldsmiths and the merchants repaired. 
 
 ***
 

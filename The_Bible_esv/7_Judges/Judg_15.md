@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After some days, at the time of wheat harvest, Samson went to visit his wife with a young goat. And he said, "I will go in to my wife in the chamber." But her father would not allow him to go in. 
 
@@ -63,7 +62,7 @@ And he was very thirsty, and he called upon the LORD and said, "You have granted
 And God split open the hollow place that is at Lehi, and water came out from it. And when he drank, his spirit returned, and he revived. Therefore the name of it was called En-hakkore; it is at Lehi to this day. 
 
 ###### 20 
-And he judged Israel in the days of the Philistines twenty years. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he judged Israel in the days of the Philistines twenty years. 
 
 ***
 

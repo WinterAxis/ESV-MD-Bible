@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The hand of the LORD was upon me, and he brought me out in the Spirit of the LORD and set me down in the middle of the valley; it was full of bones. 
 
@@ -87,7 +86,7 @@ I will make a covenant of peace with them. It shall be an everlasting covenant w
 My dwelling place shall be with them, and I will be their God, and they shall be my people. 
 
 ###### 28 
-Then the nations will know that I am the LORD who sanctifies Israel, when my sanctuary is in their midst forevermore." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the nations will know that I am the LORD who sanctifies Israel, when my sanctuary is in their midst forevermore." 
 
 ***
 

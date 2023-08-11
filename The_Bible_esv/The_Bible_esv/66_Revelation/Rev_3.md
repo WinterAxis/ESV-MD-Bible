@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And to the angel of the church in Sardis write: 'The words of him who has the seven spirits of God and the seven stars. **"'I know your works. You have the reputation of being alive, but you are dead.** 
 
@@ -69,7 +68,7 @@ Behold, I stand at the door and knock. If anyone hears my voice and opens the do
 The one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne. 
 
 ###### 22 
-He who has an ear, let him hear what the Spirit says to the churches.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He who has an ear, let him hear what the Spirit says to the churches.'" 
 
 ***
 

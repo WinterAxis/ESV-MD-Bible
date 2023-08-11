@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 It happened at that time that Judah went down from his brothers and turned aside to a certain Adullamite, whose name was Hirah. 
 
@@ -93,7 +92,7 @@ And when she was in labor, one put out a hand, and the midwife took and tied a s
 But as he drew back his hand, behold, his brother came out. And she said, "What a breach you have made for yourself!" Therefore his name was called Perez. 
 
 ###### 30 
-Afterward his brother came out with the scarlet thread on his hand, and his name was called Zerah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Afterward his brother came out with the scarlet thread on his hand, and his name was called Zerah. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "For the kingdom of heaven is like a master of a house who went out early in the morning to hire laborers for his vineyard. 
 
@@ -105,7 +104,7 @@ And stopping, Jesus called them and said, **"What do you want me to do for you?"
 They said to him, "Lord, let our eyes be opened." 
 
 ###### 34 
-And Jesus in pity touched their eyes, and immediately they recovered their sight and followed him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Jesus in pity touched their eyes, and immediately they recovered their sight and followed him. 
 
 ***
 

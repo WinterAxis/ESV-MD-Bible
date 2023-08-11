@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 It was now two days before the Passover and the Feast of Unleavened Bread. And the chief priests and the scribes were seeking how to arrest him by stealth and kill him, 
 
@@ -219,7 +218,7 @@ But again he denied it. And after a little while the bystanders again said to Pe
 But he began to invoke a curse on himself and to swear, "I do not know this man of whom you speak." 
 
 ###### 72 
-And immediately the rooster crowed a second time. And Peter remembered how Jesus had said to him, **"Before the rooster crows twice, you will deny me three times."** And he broke down and wept. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And immediately the rooster crowed a second time. And Peter remembered how Jesus had said to him, **"Before the rooster crows twice, you will deny me three times."** And he broke down and wept. 
 
 ***
 

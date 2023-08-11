@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD answered Job out of the whirlwind and said: 
 
@@ -126,7 +125,7 @@ when the dust runs into a mass and the clods stick fast together?
 when they crouch in their dens or lie in wait in their thicket? 
 
 ###### 41 
-Who provides for the raven its prey, when its young ones cry to God for help, and wander about for lack of food? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Who provides for the raven its prey, when its young ones cry to God for help, and wander about for lack of food? 
 
 ***
 

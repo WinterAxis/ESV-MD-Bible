@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If his offering is a sacrifice of peace offering, if he offers an animal from the herd, male or female, he shall offer it without blemish before the LORD. 
 
@@ -54,7 +53,7 @@ and the two kidneys with the fat that is on them at the loins and the long lobe 
 And the priest shall burn them on the altar as a food offering with a pleasing aroma. All fat is the LORD's. 
 
 ###### 17 
-It shall be a statute forever throughout your generations, in all your dwelling places, that you eat neither fat nor blood." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+It shall be a statute forever throughout your generations, in all your dwelling places, that you eat neither fat nor blood." 
 
 ***
 

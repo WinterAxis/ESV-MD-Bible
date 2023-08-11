@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the sixth year, in the sixth month, on the fifth day of the month, as I sat in my house, with the elders of Judah sitting before me, the hand of the Lord God fell upon me there. 
 
@@ -57,7 +56,7 @@ And he brought me into the inner court of the house of the LORD. And behold, at 
 Then he said to me, "Have you seen this, O son of man? Is it too light a thing for the house of Judah to commit the abominations that they commit here, that they should fill the land with violence and provoke me still further to anger? Behold, they put the branch to their nose. 
 
 ###### 18 
-Therefore I will act in wrath. My eye will not spare, nor will I have pity. And though they cry in my ears with a loud voice, I will not hear them." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore I will act in wrath. My eye will not spare, nor will I have pity. And though they cry in my ears with a loud voice, I will not hear them." 
 
 ***
 

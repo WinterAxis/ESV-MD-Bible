@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Simeon Peter, a servant and apostle of Jesus Christ, To those who have obtained a faith of equal standing with ours by the righteousness of our God and Savior Jesus Christ: 
 
@@ -66,7 +65,7 @@ And we have the prophetic word more fully confirmed, to which you will do well t
 knowing this first of all, that no prophecy of Scripture comes from someone's own interpretation. 
 
 ###### 21 
-For no prophecy was ever produced by the will of man, but men spoke from God as they were carried along by the Holy Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For no prophecy was ever produced by the will of man, but men spoke from God as they were carried along by the Holy Spirit. 
 
 ***
 

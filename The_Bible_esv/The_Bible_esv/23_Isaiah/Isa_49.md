@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Listen to me, O coastlands, and give attention, you peoples from afar. The LORD called me from the womb, from the body of my mother he named my name. 
 
@@ -81,7 +80,7 @@ Can the prey be taken from the mighty, or the captives of a tyrant be rescued?
 For thus says the LORD: "Even the captives of the mighty shall be taken, and the prey of the tyrant be rescued, for I will contend with those who contend with you, and I will save your children. 
 
 ###### 26 
-I will make your oppressors eat their own flesh, and they shall be drunk with their own blood as with wine. Then all flesh shall know that I am the LORD your Savior, and your Redeemer, the Mighty One of Jacob." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will make your oppressors eat their own flesh, and they shall be drunk with their own blood as with wine. Then all flesh shall know that I am the LORD your Savior, and your Redeemer, the Mighty One of Jacob." 
 
 ***
 

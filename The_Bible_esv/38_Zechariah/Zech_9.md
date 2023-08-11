@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle of the word of the LORD is against the land of Hadrach and Damascus is its resting place. For the LORD has an eye on mankind and on all the tribes of Israel, 
 
@@ -54,7 +53,7 @@ The LORD of hosts will protect them, and they shall devour, and tread down the s
 On that day the LORD their God will save them, as the flock of his people; for like the jewels of a crown they shall shine on his land. 
 
 ###### 17 
-For how great is his goodness, and how great his beauty! Grain shall make the young men flourish, and new wine the young women. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For how great is his goodness, and how great his beauty! Grain shall make the young men flourish, and new wine the young women. 
 
 ***
 

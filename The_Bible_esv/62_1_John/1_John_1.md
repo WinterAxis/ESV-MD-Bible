@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 That which was from the beginning, which we have heard, which we have seen with our eyes, which we looked upon and have touched with our hands, concerning the word of life-- 
 
@@ -33,7 +32,7 @@ If we say we have no sin, we deceive ourselves, and the truth is not in us.
 If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. 
 
 ###### 10 
-If we say we have not sinned, we make him a liar, and his word is not in us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+If we say we have not sinned, we make him a liar, and his word is not in us. 
 
 ***
 

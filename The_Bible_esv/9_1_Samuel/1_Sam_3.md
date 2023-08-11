@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the boy Samuel was ministering to the LORD in the presence of Eli. And the word of the LORD was rare in those days; there was no frequent vision. 
 
@@ -66,7 +65,7 @@ And Samuel grew, and the LORD was with him and let none of his words fall to the
 And all Israel from Dan to Beersheba knew that Samuel was established as a prophet of the LORD. 
 
 ###### 21 
-And the LORD appeared again at Shiloh, for the LORD revealed himself to Samuel at Shiloh by the word of the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the LORD appeared again at Shiloh, for the LORD revealed himself to Samuel at Shiloh by the word of the LORD. 
 
 ***
 

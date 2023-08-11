@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the wife of one of the sons of the prophets cried to Elisha, "Your servant my husband is dead, and you know that your servant feared the LORD, but the creditor has come to take my two children to be his slaves." 
 
@@ -135,7 +134,7 @@ A man came from Baal-shalishah, bringing the man of God bread of the firstfruits
 But his servant said, "How can I set this before a hundred men?" So he repeated, "Give them to the men, that they may eat, for thus says the LORD, 'They shall eat and have some left.'" 
 
 ###### 44 
-So he set it before them. And they ate and had some left, according to the word of the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So he set it before them. And they ate and had some left, according to the word of the LORD. 
 
 ***
 

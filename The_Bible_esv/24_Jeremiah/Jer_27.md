@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the beginning of the reign of Zedekiah the son of Josiah, king of Judah, this word came to Jeremiah from the LORD. 
 
@@ -69,7 +68,7 @@ which Nebuchadnezzar king of Babylon did not take away, when he took into exile 
 thus says the LORD of hosts, the God of Israel, concerning the vessels that are left in the house of the LORD, in the house of the king of Judah, and in Jerusalem: 
 
 ###### 22 
-They shall be carried to Babylon and remain there until the day when I visit them, declares the LORD. Then I will bring them back and restore them to this place." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They shall be carried to Babylon and remain there until the day when I visit them, declares the LORD. Then I will bring them back and restore them to this place." 
 
 ***
 

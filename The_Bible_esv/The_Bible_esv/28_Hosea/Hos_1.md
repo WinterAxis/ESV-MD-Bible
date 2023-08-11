@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Hosea, the son of Beeri, in the days of Uzziah, Jotham, Ahaz, and Hezekiah, kings of Judah, and in the days of Jeroboam the son of Joash, king of Israel. ## Hosea's Wife and Children 
 
@@ -36,7 +35,7 @@ And the LORD said, "Call his name Not My People, for you are not my people, and 
 Yet the number of the children of Israel shall be like the sand of the sea, which cannot be measured or numbered. And in the place where it was said to them, "You are not my people," it shall be said to them, "Children of the living God." 
 
 ###### 11 
-And the children of Judah and the children of Israel shall be gathered together, and they shall appoint for themselves one head. And they shall go up from the land, for great shall be the day of Jezreel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the children of Judah and the children of Israel shall be gathered together, and they shall appoint for themselves one head. And they shall go up from the land, for great shall be the day of Jezreel. 
 
 ***
 

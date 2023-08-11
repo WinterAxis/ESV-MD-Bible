@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then one of the seven angels who had the seven bowls came and said to me, "Come, I will show you the judgment of the great prostitute who is seated on many waters, 
 
@@ -57,7 +56,7 @@ And the ten horns that you saw, they and the beast will hate the prostitute. The
 for God has put it into their hearts to carry out his purpose by being of one mind and handing over their royal power to the beast, until the words of God are fulfilled. 
 
 ###### 18 
-And the woman that you saw is the great city that has dominion over the kings of the earth." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the woman that you saw is the great city that has dominion over the kings of the earth." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Joseph had been brought down to Egypt, and Potiphar, an officer of Pharaoh, the captain of the guard, an Egyptian, had bought him from the Ishmaelites who had brought him down there. 
 
@@ -72,7 +71,7 @@ But the LORD was with Joseph and showed him steadfast love and gave him favor in
 And the keeper of the prison put Joseph in charge of all the prisoners who were in the prison. Whatever was done there, he was the one who did it. 
 
 ###### 23 
-The keeper of the prison paid no attention to anything that was in Joseph's charge, because the LORD was with him. And whatever he did, the LORD made it succeed. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The keeper of the prison paid no attention to anything that was in Joseph's charge, because the LORD was with him. And whatever he did, the LORD made it succeed. 
 
 ***
 

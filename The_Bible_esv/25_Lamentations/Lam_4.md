@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 How the gold has grown dim, how the pure gold is changed! The holy stones lie scattered at the head of every street. 
 
@@ -69,7 +68,7 @@ The breath of our nostrils, the LORD's anointed, was captured in their pits, of 
 Rejoice and be glad, O daughter of Edom, you who dwell in the land of Uz; but to you also the cup shall pass; you shall become drunk and strip yourself bare. 
 
 ###### 22 
-The punishment of your iniquity, O daughter of Zion, is accomplished; he will keep you in exile no longer; but your iniquity, O daughter of Edom, he will punish; he will uncover your sins. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The punishment of your iniquity, O daughter of Zion, is accomplished; he will keep you in exile no longer; but your iniquity, O daughter of Edom, he will punish; he will uncover your sins. 
 
 ***
 

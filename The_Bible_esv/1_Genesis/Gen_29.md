@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Jacob went on his journey and came to the land of the people of the east. 
 
@@ -108,7 +107,7 @@ She conceived again and bore a son, and said, "Because the LORD has heard that I
 Again she conceived and bore a son, and said, "Now this time my husband will be attached to me, because I have borne him three sons." Therefore his name was called Levi. 
 
 ###### 35 
-And she conceived again and bore a son, and said, "This time I will praise the LORD." Therefore she called his name Judah. Then she ceased bearing. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And she conceived again and bore a son, and said, "This time I will praise the LORD." Therefore she called his name Judah. Then she ceased bearing. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now these are the nations that the LORD left, to test Israel by them, that is, all in Israel who had not experienced all the wars in Canaan. 
 
@@ -96,7 +95,7 @@ And they killed at that time about 10,000 of the Moabites, all strong, able-bodi
 So Moab was subdued that day under the hand of Israel. And the land had rest for eighty years. ## Shamgar 
 
 ###### 31 
-After him was Shamgar the son of Anath, who killed 600 of the Philistines with an oxgoad, and he also saved Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+After him was Shamgar the son of Anath, who killed 600 of the Philistines with an oxgoad, and he also saved Israel. 
 
 ***
 

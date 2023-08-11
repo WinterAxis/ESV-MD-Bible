@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On that day King Ahasuerus gave to Queen Esther the house of Haman, the enemy of the Jews. And Mordecai came before the king, for Esther had told what he was to her. 
 
@@ -54,7 +53,7 @@ Then Mordecai went out from the presence of the king in royal robes of blue and 
 The Jews had light and gladness and joy and honor. 
 
 ###### 17 
-And in every province and in every city, wherever the king's command and his edict reached, there was gladness and joy among the Jews, a feast and a holiday. And many from the peoples of the country declared themselves Jews, for fear of the Jews had fallen on them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And in every province and in every city, wherever the king's command and his edict reached, there was gladness and joy among the Jews, a feast and a holiday. And many from the peoples of the country declared themselves Jews, for fear of the Jews had fallen on them. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And you, son of man, prophesy against Gog and say, Thus says the Lord God: Behold, I am against you, O Gog, chief prince of Meshech and Tubal. 
 
@@ -90,7 +89,7 @@ when I have brought them back from the peoples and gathered them from their enem
 Then they shall know that I am the LORD their God, because I sent them into exile among the nations and then assembled them into their own land. I will leave none of them remaining among the nations anymore. 
 
 ###### 29 
-And I will not hide my face anymore from them, when I pour out my Spirit upon the house of Israel, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will not hide my face anymore from them, when I pour out my Spirit upon the house of Israel, declares the Lord God." 
 
 ***
 

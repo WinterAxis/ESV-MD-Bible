@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Come, let us return to the LORD; for he has torn us, that he may heal us; he has struck us down, and he will bind us up. 
 
@@ -36,7 +35,7 @@ As robbers lie in wait for a man, so the priests band together; they murder on t
 In the house of Israel I have seen a horrible thing; Ephraim's whoredom is there; Israel is defiled. 
 
 ###### 11 
-For you also, O Judah, a harvest is appointed. When I restore the fortunes of my people, ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For you also, O Judah, a harvest is appointed. When I restore the fortunes of my people, 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 How lonely sits the city that was full of people! How like a widow has she become, she who was great among the nations! She who was a princess among the provinces has become a slave. 
 
@@ -69,7 +68,7 @@ Zion stretches out her hands, but there is none to comfort her; the LORD has com
 "They heard my groaning, yet there is no one to comfort me. All my enemies have heard of my trouble; they are glad that you have done it. You have brought the day you announced; now let them be as I am. 
 
 ###### 22 
-"Let all their evildoing come before you, and deal with them as you have dealt with me because of all my transgressions; for my groans are many, and my heart is faint." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Let all their evildoing come before you, and deal with them as you have dealt with me because of all my transgressions; for my groans are many, and my heart is faint." 
 
 ***
 

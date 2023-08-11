@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -150,7 +149,7 @@ And the host shall stone them and cut them down with their swords. They shall ki
 Thus will I put an end to lewdness in the land, that all women may take warning and not commit lewdness as you have done. 
 
 ###### 49 
-And they shall return your lewdness upon you, and you shall bear the penalty for your sinful idolatry, and you shall know that I am the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they shall return your lewdness upon you, and you shall bear the penalty for your sinful idolatry, and you shall know that I am the Lord God." 
 
 ***
 

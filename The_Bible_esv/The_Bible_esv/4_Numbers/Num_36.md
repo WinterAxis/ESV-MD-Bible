@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The heads of the fathers' houses of the clan of the people of Gilead the son of Machir, son of Manasseh, from the clans of the people of Joseph, came near and spoke before Moses and before the chiefs, the heads of the fathers' houses of the people of Israel. 
 
@@ -42,7 +41,7 @@ for Mahlah, Tirzah, Hoglah, Milcah, and Noah, the daughters of Zelophehad, were 
 They were married into the clans of the people of Manasseh the son of Joseph, and their inheritance remained in the tribe of their father's clan. 
 
 ###### 13 
-These are the commandments and the rules that the LORD commanded through Moses to the people of Israel in the plains of Moab by the Jordan at Jericho. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the commandments and the rules that the LORD commanded through Moses to the people of Israel in the plains of Moab by the Jordan at Jericho. 
 
 ***
 

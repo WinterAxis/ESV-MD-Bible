@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "These are the names of the tribes: Beginning at the northern extreme, beside the way of Hethlon to Lebo-hamath, as far as Hazar-enan (which is on the northern border of Damascus over against Hamath), and extending from the east side to the west, Dan, one portion. 
 
@@ -108,7 +107,7 @@ On the south side, which is to be 4,500 cubits by measure, three gates, the gate
 On the west side, which is to be 4,500 cubits, three gates, the gate of Gad, the gate of Asher, and the gate of Naphtali. 
 
 ###### 35 
-The circumference of the city shall be 18,000 cubits. And the name of the city from that time on shall be, The LORD Is There." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The circumference of the city shall be 18,000 cubits. And the name of the city from that time on shall be, The LORD Is There." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You are the sons of the LORD your God. You shall not cut yourselves or make any baldness on your foreheads for the dead. 
 
@@ -90,7 +89,7 @@ And you shall not neglect the Levite who is within your towns, for he has no por
 "At the end of every three years you shall bring out all the tithe of your produce in the same year and lay it up within your towns. 
 
 ###### 29 
-And the Levite, because he has no portion or inheritance with you, and the sojourner, the fatherless, and the widow, who are within your towns, shall come and eat and be filled, that the LORD your God may bless you in all the work of your hands that you do. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the Levite, because he has no portion or inheritance with you, and the sojourner, the fatherless, and the widow, who are within your towns, shall come and eat and be filled, that the LORD your God may bless you in all the work of your hands that you do. 
 
 ***
 

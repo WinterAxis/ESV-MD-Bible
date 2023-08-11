@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the eleventh year, on the first day of the month, the word of the LORD came to me: 
 
@@ -66,7 +65,7 @@ Now the coastlands tremble on the day of your fall, and the coastlands that are 
 then I will make you go down with those who go down to the pit, to the people of old, and I will make you to dwell in the world below, among ruins from of old, with those who go down to the pit, so that you will not be inhabited; but I will set beauty in the land of the living. 
 
 ###### 21 
-I will bring you to a dreadful end, and you shall be no more. Though you be sought for, you will never be found again, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will bring you to a dreadful end, and you shall be no more. Though you be sought for, you will never be found again, declares the Lord God." 
 
 ***
 

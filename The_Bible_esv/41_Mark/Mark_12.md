@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he began to speak to them in parables. **"A man planted a vineyard and put a fence around it and dug a pit for the winepress and built a tower, and leased it to tenants and went into another country.** 
 
@@ -135,7 +134,7 @@ And a poor widow came and put in two small copper coins, which make a penny.
 And he called his disciples to him and said to them, **"Truly, I say to you, this poor widow has put in more than all those who are contributing to the offering box.** 
 
 ###### 44 
-For they all contributed out of their abundance, but she out of her poverty has put in everything she had, all she had to live on." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For they all contributed out of their abundance, but she out of her poverty has put in everything she had, all she had to live on." 
 
 ***
 

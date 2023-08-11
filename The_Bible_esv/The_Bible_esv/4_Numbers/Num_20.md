@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the people of Israel, the whole congregation, came into the wilderness of Zin in the first month, and the people stayed in Kadesh. And Miriam died there and was buried there. ## The Waters of Meribah 
 
@@ -90,7 +89,7 @@ Moses did as the LORD commanded. And they went up Mount Hor in the sight of all 
 And Moses stripped Aaron of his garments and put them on Eleazar his son. And Aaron died there on the top of the mountain. Then Moses and Eleazar came down from the mountain. 
 
 ###### 29 
-And when all the congregation saw that Aaron had perished, all the house of Israel wept for Aaron thirty days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And when all the congregation saw that Aaron had perished, all the house of Israel wept for Aaron thirty days. 
 
 ***
 

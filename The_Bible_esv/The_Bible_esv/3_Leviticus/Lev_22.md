@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses, saying, 
 
@@ -102,7 +101,7 @@ It shall be eaten on the same day; you shall leave none of it until morning: I a
 And you shall not profane my holy name, that I may be sanctified among the people of Israel. I am the LORD who sanctifies you, 
 
 ###### 33 
-who brought you out of the land of Egypt to be your God: I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+who brought you out of the land of Egypt to be your God: I am the LORD." 
 
 ***
 

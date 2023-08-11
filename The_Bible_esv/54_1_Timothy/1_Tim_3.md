@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The saying is trustworthy: If anyone aspires to the office of overseer, he desires a noble task. 
 
@@ -51,7 +50,7 @@ I hope to come to you soon, but I am writing these things to you so that,
 if I delay, you may know how one ought to behave in the household of God, which is the church of the living God, a pillar and buttress of the truth. 
 
 ###### 16 
-Great indeed, we confess, is the mystery of godliness: He was manifested in the flesh, vindicated by the Spirit, seen by angels, proclaimed among the nations, believed on in the world, taken up in glory. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Great indeed, we confess, is the mystery of godliness: He was manifested in the flesh, vindicated by the Spirit, seen by angels, proclaimed among the nations, believed on in the world, taken up in glory. 
 
 ***
 

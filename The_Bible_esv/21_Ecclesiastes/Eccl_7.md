@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 A good name is better than precious ointment, and the day of death than the day of birth. 
 
@@ -90,7 +89,7 @@ Behold, this is what I found, says the Preacher, while adding one thing to anoth
 which my soul has sought repeatedly, but I have not found. One man among a thousand I found, but a woman among all these I have not found. 
 
 ###### 29 
-See, this alone I found, that God made man upright, but they have sought out many schemes. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+See, this alone I found, that God made man upright, but they have sought out many schemes. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So put away all malice and all deceit and hypocrisy and envy and all slander. 
 
@@ -78,7 +77,7 @@ When he was reviled, he did not revile in return; when he suffered, he did not t
 He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. 
 
 ###### 25 
-For you were straying like sheep, but have now returned to the Shepherd and Overseer of your souls. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For you were straying like sheep, but have now returned to the Shepherd and Overseer of your souls. 
 
 ***
 

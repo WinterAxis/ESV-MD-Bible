@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And now, O priests, this command is for you. 
 
@@ -54,7 +53,7 @@ Did he not make them one, with a portion of the Spirit in their union? And what 
 "For the man who does not love his wife but divorces her, says the LORD, the God of Israel, covers his garment with violence, says the LORD of hosts. So guard yourselves in your spirit, and do not be faithless." ## The Messenger of the LORD 
 
 ###### 17 
-You have wearied the LORD with your words. But you say, "How have we wearied him?" By saying, "Everyone who does evil is good in the sight of the LORD, and he delights in them." Or by asking, "Where is the God of justice?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You have wearied the LORD with your words. But you say, "How have we wearied him?" By saying, "Everyone who does evil is good in the sight of the LORD, and he delights in them." Or by asking, "Where is the God of justice?" 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he said to them, **"Truly, I say to you, there are some standing here who will not taste death until they see the kingdom of God after it has come with power."** ## The Transfiguration 
 
@@ -147,7 +146,7 @@ And if your eye causes you to sin, tear it out. It is better for you to enter th
 For everyone will be salted with fire. 
 
 ###### 50 
-Salt is good, but if the salt has lost its saltiness, how will you make it salty again? Have salt in yourselves, and be at peace with one another." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Salt is good, but if the salt has lost its saltiness, how will you make it salty again? Have salt in yourselves, and be at peace with one another." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Jeremiah the prophet concerning the Philistines, before Pharaoh struck down Gaza. 
 
@@ -24,7 +23,7 @@ Baldness has come upon Gaza; Ashkelon has perished. O remnant of their valley, h
 Ah, sword of the LORD! How long till you are quiet? Put yourself into your scabbard; rest and be still! 
 
 ###### 7 
-How can it be quiet when the LORD has given it a charge? Against Ashkelon and against the seashore he has appointed it." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+How can it be quiet when the LORD has given it a charge? Against Ashkelon and against the seashore he has appointed it." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses, saying, 
 
@@ -114,7 +113,7 @@ You shall treat the stranger who sojourns with you as the native among you, and 
 You shall have just balances, just weights, a just ephah, and a just hin: I am the LORD your God, who brought you out of the land of Egypt. 
 
 ###### 37 
-And you shall observe all my statutes and all my rules, and do them: I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall observe all my statutes and all my rules, and do them: I am the LORD." 
 
 ***
 

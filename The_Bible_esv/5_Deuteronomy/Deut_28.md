@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And if you faithfully obey the voice of the LORD your God, being careful to do all his commandments that I command you today, the LORD your God will set you high above all the nations of the earth. 
 
@@ -207,7 +206,7 @@ Your life shall hang in doubt before you. Night and day you shall be in dread an
 In the morning you shall say, 'If only it were evening!' and at evening you shall say, 'If only it were morning!' because of the dread that your heart shall feel, and the sights that your eyes shall see. 
 
 ###### 68 
-And the LORD will bring you back in ships to Egypt, a journey that I promised that you should never make again; and there you shall offer yourselves for sale to your enemies as male and female slaves, but there will be no buyer." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the LORD will bring you back in ships to Egypt, a journey that I promised that you should never make again; and there you shall offer yourselves for sale to your enemies as male and female slaves, but there will be no buyer." 
 
 ***
 

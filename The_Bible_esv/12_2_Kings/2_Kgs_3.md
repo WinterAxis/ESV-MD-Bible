@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the eighteenth year of Jehoshaphat king of Judah, Jehoram the son of Ahab became king over Israel in Samaria, and he reigned twelve years. 
 
@@ -84,7 +83,7 @@ And they overthrew the cities, and on every good piece of land every man threw a
 When the king of Moab saw that the battle was going against him, he took with him 700 swordsmen to break through, opposite the king of Edom, but they could not. 
 
 ###### 27 
-Then he took his oldest son who was to reign in his place and offered him for a burnt offering on the wall. And there came great wrath against Israel. And they withdrew from him and returned to their own land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then he took his oldest son who was to reign in his place and offered him for a burnt offering on the wall. And there came great wrath against Israel. And they withdrew from him and returned to their own land. 
 
 ***
 

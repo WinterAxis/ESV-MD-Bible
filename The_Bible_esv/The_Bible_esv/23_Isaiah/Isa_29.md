@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Ah, Ariel, Ariel, the city where David encamped! Add year to year; let the feasts run their round. 
 
@@ -75,7 +74,7 @@ Therefore thus says the LORD, who redeemed Abraham, concerning the house of Jaco
 For when he sees his children, the work of my hands, in his midst, they will sanctify my name; they will sanctify the Holy One of Jacob and will stand in awe of the God of Israel. 
 
 ###### 24 
-And those who go astray in spirit will come to understanding, and those who murmur will accept instruction." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And those who go astray in spirit will come to understanding, and those who murmur will accept instruction." 
 
 ***
 

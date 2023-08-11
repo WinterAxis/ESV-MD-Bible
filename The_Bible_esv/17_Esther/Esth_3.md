@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After these things King Ahasuerus promoted Haman the Agagite, the son of Hammedatha, and advanced him and set his throne above all the officials who were with him. 
 
@@ -48,7 +47,7 @@ Letters were sent by couriers to all the king's provinces with instruction to de
 A copy of the document was to be issued as a decree in every province by proclamation to all the peoples to be ready for that day. 
 
 ###### 15 
-The couriers went out hurriedly by order of the king, and the decree was issued in Susa the citadel. And the king and Haman sat down to drink, but the city of Susa was thrown into confusion. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The couriers went out hurriedly by order of the king, and the decree was issued in Susa the citadel. And the king and Haman sat down to drink, but the city of Susa was thrown into confusion. 
 
 ***
 

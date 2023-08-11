@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On the eighth day Moses called Aaron and his sons and the elders of Israel, 
 
@@ -75,7 +74,7 @@ Then Aaron lifted up his hands toward the people and blessed them, and he came d
 And Moses and Aaron went into the tent of meeting, and when they came out they blessed the people, and the glory of the LORD appeared to all the people. 
 
 ###### 24 
-And fire came out from before the LORD and consumed the burnt offering and the pieces of fat on the altar, and when all the people saw it, they shouted and fell on their faces. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And fire came out from before the LORD and consumed the burnt offering and the pieces of fat on the altar, and when all the people saw it, they shouted and fell on their faces. 
 
 ***
 

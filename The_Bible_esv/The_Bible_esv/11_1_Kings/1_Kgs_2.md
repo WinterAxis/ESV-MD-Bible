@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When David's time to die drew near, he commanded Solomon his son, saying, 
 
@@ -141,7 +140,7 @@ The king also said to Shimei, "You know in your own heart all the harm that you 
 But King Solomon shall be blessed, and the throne of David shall be established before the LORD forever." 
 
 ###### 46 
-Then the king commanded Benaiah the son of Jehoiada, and he went out and struck him down, and he died. So the kingdom was established in the hand of Solomon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the king commanded Benaiah the son of Jehoiada, and he went out and struck him down, and he died. So the kingdom was established in the hand of Solomon. 
 
 ***
 

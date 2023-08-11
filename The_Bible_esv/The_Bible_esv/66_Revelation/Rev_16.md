@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then I heard a loud voice from the temple telling the seven angels, "Go and pour out on the earth the seven bowls of the wrath of God." 
 
@@ -66,7 +65,7 @@ The great city was split into three parts, and the cities of the nations fell, a
 And every island fled away, and no mountains were to be found. 
 
 ###### 21 
-And great hailstones, about one hundred pounds each, fell from heaven on people; and they cursed God for the plague of the hail, because the plague was so severe. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And great hailstones, about one hundred pounds each, fell from heaven on people; and they cursed God for the plague of the hail, because the plague was so severe. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD said to Moses, "Yet one plague more I will bring upon Pharaoh and upon Egypt. Afterward he will let you go from here. When he lets you go, he will drive you away completely. 
 
@@ -33,7 +32,7 @@ And all these your servants shall come down to me and bow down to me, saying, 'G
 Then the LORD said to Moses, "Pharaoh will not listen to you, that my wonders may be multiplied in the land of Egypt." 
 
 ###### 10 
-Moses and Aaron did all these wonders before Pharaoh, and the LORD hardened Pharaoh's heart, and he did not let the people of Israel go out of his land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moses and Aaron did all these wonders before Pharaoh, and the LORD hardened Pharaoh's heart, and he did not let the people of Israel go out of his land. 
 
 ***
 

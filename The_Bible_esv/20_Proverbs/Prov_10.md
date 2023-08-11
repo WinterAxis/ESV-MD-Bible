@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The proverbs of Solomon. A wise son makes a glad father, but a foolish son is a sorrow to his mother. 
 
@@ -99,7 +98,7 @@ The righteous will never be removed, but the wicked will not dwell in the land.
 The mouth of the righteous brings forth wisdom, but the perverse tongue will be cut off. 
 
 ###### 32 
-The lips of the righteous know what is acceptable, but the mouth of the wicked, what is perverse. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The lips of the righteous know what is acceptable, but the mouth of the wicked, what is perverse. 
 
 ***
 

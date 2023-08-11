@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The Song of Songs, which is Solomon's. ## The Bride Confesses Her Love 
 
@@ -54,7 +53,7 @@ Behold, you are beautiful, my love; behold, you are beautiful; your eyes are dov
 Behold, you are beautiful, my beloved, truly delightful. Our couch is green; 
 
 ###### 17 
-the beams of our house are cedar; our rafters are pine. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the beams of our house are cedar; our rafters are pine. 
 
 ***
 

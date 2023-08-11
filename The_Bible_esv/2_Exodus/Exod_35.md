@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Moses assembled all the congregation of the people of Israel and said to them, "These are the things that the LORD has commanded you to do. 
 
@@ -108,7 +107,7 @@ in cutting stones for setting, and in carving wood, for work in every skilled cr
 And he has inspired him to teach, both him and Oholiab the son of Ahisamach of the tribe of Dan. 
 
 ###### 35 
-He has filled them with skill to do every sort of work done by an engraver or by a designer or by an embroiderer in blue and purple and scarlet yarns and fine twined linen, or by a weaver--by any sort of workman or skilled designer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He has filled them with skill to do every sort of work done by an engraver or by a designer or by an embroiderer in blue and purple and scarlet yarns and fine twined linen, or by a weaver--by any sort of workman or skilled designer. 
 
 ***
 

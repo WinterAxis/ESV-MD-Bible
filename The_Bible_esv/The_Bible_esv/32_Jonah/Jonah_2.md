@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Jonah prayed to the LORD his God from the belly of the fish, 
 
@@ -33,7 +32,7 @@ Those who pay regard to vain idols forsake their hope of steadfast love.
 But I with the voice of thanksgiving will sacrifice to you; what I have vowed I will pay. Salvation belongs to the LORD!" 
 
 ###### 10 
-And the LORD spoke to the fish, and it vomited Jonah out upon the dry land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the LORD spoke to the fish, and it vomited Jonah out upon the dry land. 
 
 ***
 

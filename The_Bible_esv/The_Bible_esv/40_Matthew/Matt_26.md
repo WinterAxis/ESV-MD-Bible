@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jesus had finished all these sayings, he said to his disciples, 
 
@@ -228,7 +227,7 @@ After a little while the bystanders came up and said to Peter, "Certainly you to
 Then he began to invoke a curse on himself and to swear, "I do not know the man." And immediately the rooster crowed. 
 
 ###### 75 
-And Peter remembered the saying of Jesus, **"Before the rooster crows, you will deny me three times."** And he went out and wept bitterly. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Peter remembered the saying of Jesus, **"Before the rooster crows, you will deny me three times."** And he went out and wept bitterly. 
 
 ***
 

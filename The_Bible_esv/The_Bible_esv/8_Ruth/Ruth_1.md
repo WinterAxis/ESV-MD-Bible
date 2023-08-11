@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the days when the judges ruled there was a famine in the land, and a man of Bethlehem in Judah went to sojourn in the country of Moab, he and his wife and his two sons. 
 
@@ -69,7 +68,7 @@ She said to them, "Do not call me Naomi; call me Mara, for the Almighty has deal
 I went away full, and the LORD has brought me back empty. Why call me Naomi, when the LORD has testified against me and the Almighty has brought calamity upon me?" 
 
 ###### 22 
-So Naomi returned, and Ruth the Moabite her daughter-in-law with her, who returned from the country of Moab. And they came to Bethlehem at the beginning of barley harvest. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Naomi returned, and Ruth the Moabite her daughter-in-law with her, who returned from the country of Moab. And they came to Bethlehem at the beginning of barley harvest. 
 
 ***
 

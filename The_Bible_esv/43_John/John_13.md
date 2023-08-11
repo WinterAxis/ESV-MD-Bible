@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now before the Feast of the Passover, when Jesus knew that his hour had come to depart out of this world to the Father, having loved his own who were in the world, he loved them to the end. 
 
@@ -117,7 +116,7 @@ Simon Peter said to him, "Lord, where are you going?" Jesus answered him, **"Whe
 Peter said to him, "Lord, why can I not follow you now? I will lay down my life for you." 
 
 ###### 38 
-Jesus answered, **"Will you lay down your life for me? Truly, truly, I say to you, the rooster will not crow till you have denied me three times.** ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Jesus answered, **"Will you lay down your life for me? Truly, truly, I say to you, the rooster will not crow till you have denied me three times.** 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "But now they laugh at me, men who are younger than I, whose fathers I would have disdained to set with the dogs of my flock. 
 
@@ -96,7 +95,7 @@ I am a brother of jackals and a companion of ostriches.
 My skin turns black and falls from me, and my bones burn with heat. 
 
 ###### 31 
-My lyre is turned to mourning, and my pipe to the voice of those who weep. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+My lyre is turned to mourning, and my pipe to the voice of those who weep. 
 
 ***
 

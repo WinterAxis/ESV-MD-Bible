@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this, Joseph was told, "Behold, your father is ill." So he took with him his two sons, Manasseh and Ephraim. 
 
@@ -69,7 +68,7 @@ So he blessed them that day, saying, "By you Israel will pronounce blessings, sa
 Then Israel said to Joseph, "Behold, I am about to die, but God will be with you and will bring you again to the land of your fathers. 
 
 ###### 22 
-Moreover, I have given to you rather than to your brothers one mountain slope that I took from the hand of the Amorites with my sword and with my bow." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moreover, I have given to you rather than to your brothers one mountain slope that I took from the hand of the Amorites with my sword and with my bow." 
 
 ***
 

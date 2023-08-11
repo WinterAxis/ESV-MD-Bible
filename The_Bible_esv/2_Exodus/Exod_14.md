@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to Moses, 
 
@@ -96,7 +95,7 @@ But the people of Israel walked on dry ground through the sea, the waters being 
 Thus the LORD saved Israel that day from the hand of the Egyptians, and Israel saw the Egyptians dead on the seashore. 
 
 ###### 31 
-Israel saw the great power that the LORD used against the Egyptians, so the people feared the LORD, and they believed in the LORD and in his servant Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Israel saw the great power that the LORD used against the Egyptians, so the people feared the LORD, and they believed in the LORD and in his servant Moses. 
 
 ***
 

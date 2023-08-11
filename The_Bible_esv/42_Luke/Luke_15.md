@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the tax collectors and sinners were all drawing near to hear him. 
 
@@ -99,7 +98,7 @@ But when this son of yours came, who has devoured your property with prostitutes
 And he said to him, 'Son, you are always with me, and all that is mine is yours. 
 
 ###### 32 
-It was fitting to celebrate and be glad, for this your brother was dead, and is alive; he was lost, and is found.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+It was fitting to celebrate and be glad, for this your brother was dead, and is alive; he was lost, and is found.'" 
 
 ***
 

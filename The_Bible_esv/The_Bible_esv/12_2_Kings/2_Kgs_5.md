@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Naaman, commander of the army of the king of Syria, was a great man with his master and in high favor, because by him the LORD had given victory to Syria. He was a mighty man of valor, but he was a leper. 
 
@@ -84,7 +83,7 @@ He went in and stood before his master, and Elisha said to him, "Where have you 
 But he said to him, "Did not my heart go when the man turned from his chariot to meet you? Was it a time to accept money and garments, olive orchards and vineyards, sheep and oxen, male servants and female servants? 
 
 ###### 27 
-Therefore the leprosy of Naaman shall cling to you and to your descendants forever." So he went out from his presence a leper, like snow. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore the leprosy of Naaman shall cling to you and to your descendants forever." So he went out from his presence a leper, like snow. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If a prophet or a dreamer of dreams arises among you and gives you a sign or a wonder, 
 
@@ -57,7 +56,7 @@ You shall gather all its spoil into the midst of its open square and burn the ci
 None of the devoted things shall stick to your hand, that the LORD may turn from the fierceness of his anger and show you mercy and have compassion on you and multiply you, as he swore to your fathers, 
 
 ###### 18 
-if you obey the voice of the LORD your God, keeping all his commandments that I am commanding you today, and doing what is right in the sight of the LORD your God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+if you obey the voice of the LORD your God, keeping all his commandments that I am commanding you today, and doing what is right in the sight of the LORD your God. 
 
 ***
 

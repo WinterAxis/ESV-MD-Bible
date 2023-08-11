@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -87,7 +86,7 @@ And the word of the LORD came to me:
 "Son of man, behold, they of the house of Israel say, 'The vision that he sees is for many days from now, and he prophesies of times far off.' 
 
 ###### 28 
-Therefore say to them, Thus says the Lord God: None of my words will be delayed any longer, but the word that I speak will be performed, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore say to them, Thus says the Lord God: None of my words will be delayed any longer, but the word that I speak will be performed, declares the Lord God." 
 
 ***
 

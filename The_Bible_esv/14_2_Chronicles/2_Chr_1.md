@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Solomon the son of David established himself in his kingdom, and the LORD his God was with him and made him exceedingly great. 
 
@@ -54,7 +53,7 @@ And the king made silver and gold as common in Jerusalem as stone, and he made c
 And Solomon's import of horses was from Egypt and Kue, and the king's traders would buy them from Kue for a price. 
 
 ###### 17 
-They imported a chariot from Egypt for 600 shekels of silver, and a horse for 150. Likewise through them these were exported to all the kings of the Hittites and the kings of Syria. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They imported a chariot from Egypt for 600 shekels of silver, and a horse for 150. Likewise through them these were exported to all the kings of the Hittites and the kings of Syria. 
 
 ***
 

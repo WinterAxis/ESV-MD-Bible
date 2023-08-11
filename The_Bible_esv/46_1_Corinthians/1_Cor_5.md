@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 It is actually reported that there is sexual immorality among you, and of a kind that is not tolerated even among pagans, for a man has his father's wife. 
 
@@ -42,7 +41,7 @@ But now I am writing to you not to associate with anyone who bears the name of b
 For what have I to do with judging outsiders? Is it not those inside the church whom you are to judge? 
 
 ###### 13 
-God judges those outside. "Purge the evil person from among you." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+God judges those outside. "Purge the evil person from among you." 
 
 ***
 

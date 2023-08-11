@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At that time Herod the tetrarch heard about the fame of Jesus, 
 
@@ -111,7 +110,7 @@ And when they had crossed over, they came to land at Gennesaret.
 And when the men of that place recognized him, they sent around to all that region and brought to him all who were sick 
 
 ###### 36 
-and implored him that they might only touch the fringe of his garment. And as many as touched it were made well. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and implored him that they might only touch the fringe of his garment. And as many as touched it were made well. 
 
 ***
 

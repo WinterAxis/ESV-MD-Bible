@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the eleventh year, in the third month, on the first day of the month, the word of the LORD came to me: 
 
@@ -57,7 +56,7 @@ I made the nations quake at the sound of its fall, when I cast it down to Sheol 
 They also went down to Sheol with it, to those who are slain by the sword; yes, those who were its arm, who lived under its shadow among the nations. 
 
 ###### 18 
-"Whom are you thus like in glory and in greatness among the trees of Eden? You shall be brought down with the trees of Eden to the world below. You shall lie among the uncircumcised, with those who are slain by the sword. "This is Pharaoh and all his multitude, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Whom are you thus like in glory and in greatness among the trees of Eden? You shall be brought down with the trees of Eden to the world below. You shall lie among the uncircumcised, with those who are slain by the sword. "This is Pharaoh and all his multitude, declares the Lord God." 
 
 ***
 

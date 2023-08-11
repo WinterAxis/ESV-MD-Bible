@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And I lifted my eyes and saw, and behold, a man with a measuring line in his hand! 
 
@@ -42,7 +41,7 @@ And many nations shall join themselves to the LORD in that day, and shall be my 
 And the LORD will inherit Judah as his portion in the holy land, and will again choose Jerusalem." 
 
 ###### 13 
-Be silent, all flesh, before the LORD, for he has roused himself from his holy dwelling. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Be silent, all flesh, before the LORD, for he has roused himself from his holy dwelling. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Joshua gathered all the tribes of Israel to Shechem and summoned the elders, the heads, the judges, and the officers of Israel. And they presented themselves before God. 
 
@@ -102,7 +101,7 @@ Israel served the LORD all the days of Joshua, and all the days of the elders wh
 As for the bones of Joseph, which the people of Israel brought up from Egypt, they buried them at Shechem, in the piece of land that Jacob bought from the sons of Hamor the father of Shechem for a hundred pieces of money. It became an inheritance of the descendants of Joseph. 
 
 ###### 33 
-And Eleazar the son of Aaron died, and they buried him at Gibeah, the town of Phinehas his son, which had been given him in the hill country of Ephraim. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Eleazar the son of Aaron died, and they buried him at Gibeah, the town of Phinehas his son, which had been given him in the hill country of Ephraim. 
 
 ***
 

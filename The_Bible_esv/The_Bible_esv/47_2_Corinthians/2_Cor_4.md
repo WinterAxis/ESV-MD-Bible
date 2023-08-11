@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore, having this ministry by the mercy of God, we do not lose heart. 
 
@@ -57,7 +56,7 @@ So we do not lose heart. Though our outer self is wasting away, our inner self i
 For this light momentary affliction is preparing for us an eternal weight of glory beyond all comparison, 
 
 ###### 18 
-as we look not to the things that are seen but to the things that are unseen. For the things that are seen are transient, but the things that are unseen are eternal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+as we look not to the things that are seen but to the things that are unseen. For the things that are seen are transient, but the things that are unseen are eternal. 
 
 ***
 

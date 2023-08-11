@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Awake, awake, put on your strength, O Zion; put on your beautiful garments, O Jerusalem, the holy city; for there shall no more come into you the uncircumcised and the unclean. 
 
@@ -48,7 +47,7 @@ Behold, my servant shall act wisely; he shall be high and lifted up, and shall b
 As many were astonished at you-- his appearance was so marred, beyond human semblance, and his form beyond that of the children of mankind-- 
 
 ###### 15 
-so shall he sprinkle many nations. Kings shall shut their mouths because of him, for that which has not been told them they see, and that which they have not heard they understand. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so shall he sprinkle many nations. Kings shall shut their mouths because of him, for that which has not been told them they see, and that which they have not heard they understand. 
 
 ***
 

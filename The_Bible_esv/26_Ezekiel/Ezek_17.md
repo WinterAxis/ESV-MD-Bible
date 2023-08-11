@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -75,7 +74,7 @@ Thus says the Lord God: "I myself will take a sprig from the lofty top of the ce
 On the mountain height of Israel will I plant it, that it may bear branches and produce fruit and become a noble cedar. And under it will dwell every kind of bird; in the shade of its branches birds of every sort will nest. 
 
 ###### 24 
-And all the trees of the field shall know that I am the LORD; I bring low the high tree, and make high the low tree, dry up the green tree, and make the dry tree flourish. I am the LORD; I have spoken, and I will do it." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And all the trees of the field shall know that I am the LORD; I bring low the high tree, and make high the low tree, dry up the green tree, and make the dry tree flourish. I am the LORD; I have spoken, and I will do it." 
 
 ***
 

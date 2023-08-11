@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On the third day Esther put on her royal robes and stood in the inner court of the king's palace, in front of the king's quarters, while the king was sitting on his royal throne inside the throne room opposite the entrance to the palace. 
 
@@ -45,7 +44,7 @@ Then Haman said, "Even Queen Esther let no one but me come with the king to the 
 Yet all this is worth nothing to me, so long as I see Mordecai the Jew sitting at the king's gate." 
 
 ###### 14 
-Then his wife Zeresh and all his friends said to him, "Let a gallows fifty cubits high be made, and in the morning tell the king to have Mordecai hanged upon it. Then go joyfully with the king to the feast." This idea pleased Haman, and he had the gallows made. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then his wife Zeresh and all his friends said to him, "Let a gallows fifty cubits high be made, and in the morning tell the king to have Mordecai hanged upon it. Then go joyfully with the king to the feast." This idea pleased Haman, and he had the gallows made. 
 
 ***
 

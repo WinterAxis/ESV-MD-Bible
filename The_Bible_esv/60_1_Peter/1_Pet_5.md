@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So I exhort the elders among you, as a fellow elder and a witness of the sufferings of Christ, as well as a partaker in the glory that is going to be revealed: 
 
@@ -45,7 +44,7 @@ By Silvanus, a faithful brother as I regard him, I have written briefly to you, 
 She who is at Babylon, who is likewise chosen, sends you greetings, and so does Mark, my son. 
 
 ###### 14 
-Greet one another with the kiss of love. Peace to all of you who are in Christ. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Greet one another with the kiss of love. Peace to all of you who are in Christ. 
 
 ***
 

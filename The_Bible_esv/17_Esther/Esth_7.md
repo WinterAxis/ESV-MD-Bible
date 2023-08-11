@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So the king and Haman went in to feast with Queen Esther. 
 
@@ -33,7 +32,7 @@ And the king returned from the palace garden to the place where they were drinki
 Then Harbona, one of the eunuchs in attendance on the king, said, "Moreover, the gallows that Haman has prepared for Mordecai, whose word saved the king, is standing at Haman's house, fifty cubits high." And the king said, "Hang him on that." 
 
 ###### 10 
-So they hanged Haman on the gallows that he had prepared for Mordecai. Then the wrath of the king abated. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they hanged Haman on the gallows that he had prepared for Mordecai. Then the wrath of the king abated. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Listen to me in silence, O coastlands; let the peoples renew their strength; let them approach, then let them speak; let us together draw near for judgment. 
 
@@ -90,7 +89,7 @@ I was the first to say to Zion, "Behold, here they are!" and I give to Jerusalem
 But when I look, there is no one; among these there is no counselor who, when I ask, gives an answer. 
 
 ###### 29 
-Behold, they are all a delusion; their works are nothing; their metal images are empty wind. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, they are all a delusion; their works are nothing; their metal images are empty wind. 
 
 ***
 

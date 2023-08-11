@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Send the lamb to the ruler of the land, from Sela, by way of the desert, to the mount of the daughter of Zion. 
 
@@ -45,7 +44,7 @@ And when Moab presents himself, when he wearies himself on the high place, when 
 This is the word that the LORD spoke concerning Moab in the past. 
 
 ###### 14 
-But now the LORD has spoken, saying, "In three years, like the years of a hired worker, the glory of Moab will be brought into contempt, in spite of all his great multitude, and those who remain will be very few and feeble." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But now the LORD has spoken, saying, "In three years, like the years of a hired worker, the glory of Moab will be brought into contempt, in spite of all his great multitude, and those who remain will be very few and feeble." 
 
 ***
 

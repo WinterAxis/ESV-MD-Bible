@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jabin, king of Hazor, heard of this, he sent to Jobab king of Madon, and to the king of Shimron, and to the king of Achshaph, 
 
@@ -72,7 +71,7 @@ And Joshua came at that time and cut off the Anakim from the hill country, from 
 There was none of the Anakim left in the land of the people of Israel. Only in Gaza, in Gath, and in Ashdod did some remain. 
 
 ###### 23 
-So Joshua took the whole land, according to all that the LORD had spoken to Moses. And Joshua gave it for an inheritance to Israel according to their tribal allotments. And the land had rest from war. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Joshua took the whole land, according to all that the LORD had spoken to Moses. And Joshua gave it for an inheritance to Israel according to their tribal allotments. And the land had rest from war. 
 
 ***
 

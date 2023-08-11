@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now concerning the coming of our Lord Jesus Christ and our being gathered together to him, we ask you, brothers, 
 
@@ -54,7 +53,7 @@ So then, brothers, stand firm and hold to the traditions that you were taught by
 Now may our Lord Jesus Christ himself, and God our Father, who loved us and gave us eternal comfort and good hope through grace, 
 
 ###### 17 
-comfort your hearts and establish them in every good work and word. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+comfort your hearts and establish them in every good work and word. 
 
 ***
 

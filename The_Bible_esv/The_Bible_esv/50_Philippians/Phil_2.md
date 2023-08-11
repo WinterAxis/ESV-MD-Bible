@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So if there is any encouragement in Christ, any comfort from love, any participation in the Spirit, any affection and sympathy, 
 
@@ -93,7 +92,7 @@ I am the more eager to send him, therefore, that you may rejoice at seeing him a
 So receive him in the Lord with all joy, and honor such men, 
 
 ###### 30 
-for he nearly died for the work of Christ, risking his life to complete what was lacking in your service to me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+for he nearly died for the work of Christ, risking his life to complete what was lacking in your service to me. 
 
 ***
 

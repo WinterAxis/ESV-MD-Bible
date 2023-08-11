@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah concerning all the Judeans who lived in the land of Egypt, at Migdol, at Tahpanhes, at Memphis, and in the land of Pathros, 
 
@@ -93,7 +92,7 @@ And those who escape the sword shall return from the land of Egypt to the land o
 This shall be the sign to you, declares the LORD, that I will punish you in this place, in order that you may know that my words will surely stand against you for harm: 
 
 ###### 30 
-Thus says the LORD, Behold, I will give Pharaoh Hophra king of Egypt into the hand of his enemies and into the hand of those who seek his life, as I gave Zedekiah king of Judah into the hand of Nebuchadnezzar king of Babylon, who was his enemy and sought his life." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus says the LORD, Behold, I will give Pharaoh Hophra king of Egypt into the hand of his enemies and into the hand of those who seek his life, as I gave Zedekiah king of Judah into the hand of Nebuchadnezzar king of Babylon, who was his enemy and sought his life." 
 
 ***
 

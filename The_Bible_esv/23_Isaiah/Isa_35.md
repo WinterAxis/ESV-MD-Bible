@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The wilderness and the dry land shall be glad; the desert shall rejoice and blossom like the crocus; 
 
@@ -33,7 +32,7 @@ And a highway shall be there, and it shall be called the Way of Holiness; the un
 No lion shall be there, nor shall any ravenous beast come up on it; they shall not be found there, but the redeemed shall walk there. 
 
 ###### 10 
-And the ransomed of the LORD shall return and come to Zion with singing; everlasting joy shall be upon their heads; they shall obtain gladness and joy, and sorrow and sighing shall flee away. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the ransomed of the LORD shall return and come to Zion with singing; everlasting joy shall be upon their heads; they shall obtain gladness and joy, and sorrow and sighing shall flee away. 
 
 ***
 

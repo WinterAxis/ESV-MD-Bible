@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Jesus was praying in a certain place, and when he finished, one of his disciples said to him, "Lord, teach us to pray, as John taught his disciples." 
 
@@ -165,7 +164,7 @@ Woe to you lawyers! For you have taken away the key of knowledge. You did not en
 As he went away from there, the scribes and the Pharisees began to press him hard and to provoke him to speak about many things, 
 
 ###### 54 
-lying in wait for him, to catch him in something he might say. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+lying in wait for him, to catch him in something he might say. 
 
 ***
 

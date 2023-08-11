@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem in the days of Uzziah, Jotham, Ahaz, and Hezekiah, kings of Judah. ## The Wickedness of Judah 
 
@@ -96,7 +95,7 @@ For they shall be ashamed of the oaks that you desired; and you shall blush for 
 For you shall be like an oak whose leaf withers, and like a garden without water. 
 
 ###### 31 
-And the strong shall become tinder, and his work a spark, and both of them shall burn together, with none to quench them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the strong shall become tinder, and his work a spark, and both of them shall burn together, with none to quench them. 
 
 ***
 

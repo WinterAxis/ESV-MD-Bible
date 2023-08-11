@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jesus had finished instructing his twelve disciples, he went on from there to teach and preach in their cities. 
 
@@ -93,7 +92,7 @@ Come to me, all who labor and are heavy laden, and I will give you rest.
 Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will find rest for your souls. 
 
 ###### 30 
-For my yoke is easy, and my burden is light." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For my yoke is easy, and my burden is light." 
 
 ***
 

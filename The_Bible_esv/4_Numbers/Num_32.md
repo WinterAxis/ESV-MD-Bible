@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the people of Reuben and the people of Gad had a very great number of livestock. And they saw the land of Jazer and the land of Gilead, and behold, the place was a place for livestock. 
 
@@ -129,7 +128,7 @@ And Moses gave Gilead to Machir the son of Manasseh, and he settled in it.
 And Jair the son of Manasseh went and captured their villages, and called them Havvoth-jair. 
 
 ###### 42 
-And Nobah went and captured Kenath and its villages, and called it Nobah, after his own name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Nobah went and captured Kenath and its villages, and called it Nobah, after his own name. 
 
 ***
 

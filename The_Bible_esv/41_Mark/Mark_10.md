@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he left there and went to the region of Judea and beyond the Jordan, and crowds gathered to him again. And again, as was his custom, he taught them. 
 
@@ -159,7 +158,7 @@ And throwing off his cloak, he sprang up and came to Jesus.
 And Jesus said to him, **"What do you want me to do for you?"** And the blind man said to him, "Rabbi, let me recover my sight." 
 
 ###### 52 
-And Jesus said to him, **"Go your way; your faith has made you well."** And immediately he recovered his sight and followed him on the way. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Jesus said to him, **"Go your way; your faith has made you well."** And immediately he recovered his sight and followed him on the way. 
 
 ***
 

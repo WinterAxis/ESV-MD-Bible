@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You shall not sacrifice to the LORD your God an ox or a sheep in which is a blemish, any defect whatever, for that is an abomination to the LORD your God. 
 
@@ -63,7 +62,7 @@ And he shall not acquire many wives for himself, lest his heart turn away, nor s
 And it shall be with him, and he shall read in it all the days of his life, that he may learn to fear the LORD his God by keeping all the words of this law and these statutes, and doing them, 
 
 ###### 20 
-that his heart may not be lifted up above his brothers, and that he may not turn aside from the commandment, either to the right hand or to the left, so that he may continue long in his kingdom, he and his children, in Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+that his heart may not be lifted up above his brothers, and that he may not turn aside from the commandment, either to the right hand or to the left, so that he may continue long in his kingdom, he and his children, in Israel. 
 
 ***
 

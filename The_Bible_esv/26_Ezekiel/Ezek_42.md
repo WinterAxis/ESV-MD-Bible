@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he led me out into the outer court, toward the north, and he brought me to the chambers that were opposite the separate yard and opposite the building on the north. 
 
@@ -63,7 +62,7 @@ He measured the south side, 500 cubits by the measuring reed.
 Then he turned to the west side and measured, 500 cubits by the measuring reed. 
 
 ###### 20 
-He measured it on the four sides. It had a wall around it, 500 cubits long and 500 cubits broad, to make a separation between the holy and the common. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He measured it on the four sides. It had a wall around it, 500 cubits long and 500 cubits broad, to make a separation between the holy and the common. 
 
 ***
 

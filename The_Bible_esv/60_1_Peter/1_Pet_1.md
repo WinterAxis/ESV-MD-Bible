@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Peter, an apostle of Jesus Christ, To those who are elect exiles of the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia, 
 
@@ -78,7 +77,7 @@ since you have been born again, not of perishable seed but of imperishable, thro
 for "All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, 
 
 ###### 25 
-but the word of the Lord remains forever." And this word is the good news that was preached to you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but the word of the Lord remains forever." And this word is the good news that was preached to you. 
 
 ***
 

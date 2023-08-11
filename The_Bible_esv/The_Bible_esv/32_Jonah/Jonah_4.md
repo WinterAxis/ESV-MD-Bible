@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But it displeased Jonah exceedingly, and he was angry. 
 
@@ -36,7 +35,7 @@ But God said to Jonah, "Do you do well to be angry for the plant?" And he said, 
 And the LORD said, "You pity the plant, for which you did not labor, nor did you make it grow, which came into being in a night and perished in a night. 
 
 ###### 11 
-And should not I pity Nineveh, that great city, in which there are more than 120,000 persons who do not know their right hand from their left, and also much cattle?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And should not I pity Nineveh, that great city, in which there are more than 120,000 persons who do not know their right hand from their left, and also much cattle?" 
 
 ***
 

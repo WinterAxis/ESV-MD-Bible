@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Ephraim spoke, there was trembling; he was exalted in Israel, but he incurred guilt through Baal and died. 
 
@@ -51,7 +50,7 @@ I shall ransom them from the power of Sheol; I shall redeem them from Death. O D
 Though he may flourish among his brothers, the east wind, the wind of the LORD, shall come, rising from the wilderness, and his fountain shall dry up; his spring shall be parched; it shall strip his treasury of every precious thing. 
 
 ###### 16 
-Samaria shall bear her guilt, because she has rebelled against her God; they shall fall by the sword; their little ones shall be dashed in pieces, and their pregnant women ripped open. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Samaria shall bear her guilt, because she has rebelled against her God; they shall fall by the sword; their little ones shall be dashed in pieces, and their pregnant women ripped open. 
 
 ***
 

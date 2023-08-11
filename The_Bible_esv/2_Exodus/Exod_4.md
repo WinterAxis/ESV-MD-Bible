@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Moses answered, "But behold, they will not believe me or listen to my voice, for they will say, 'The LORD did not appear to you.'" 
 
@@ -96,7 +95,7 @@ Then Moses and Aaron went and gathered together all the elders of the people of 
 Aaron spoke all the words that the LORD had spoken to Moses and did the signs in the sight of the people. 
 
 ###### 31 
-And the people believed; and when they heard that the LORD had visited the people of Israel and that he had seen their affliction, they bowed their heads and worshiped. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the people believed; and when they heard that the LORD had visited the people of Israel and that he had seen their affliction, they bowed their heads and worshiped. 
 
 ***
 

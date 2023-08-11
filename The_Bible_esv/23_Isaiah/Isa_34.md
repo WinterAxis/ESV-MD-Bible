@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Draw near, O nations, to hear, and give attention, O peoples! Let the earth hear, and all that fills it; the world, and all that comes from it. 
 
@@ -54,7 +53,7 @@ There the owl nests and lays and hatches and gathers her young in her shadow; in
 Seek and read from the book of the LORD: Not one of these shall be missing; none shall be without her mate. For the mouth of the LORD has commanded, and his Spirit has gathered them. 
 
 ###### 17 
-He has cast the lot for them; his hand has portioned it out to them with the line; they shall possess it forever; from generation to generation they shall dwell in it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He has cast the lot for them; his hand has portioned it out to them with the line; they shall possess it forever; from generation to generation they shall dwell in it. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the people complained in the hearing of the LORD about their misfortunes, and when the LORD heard it, his anger was kindled, and the fire of the LORD burned among them and consumed some outlying parts of the camp. 
 
@@ -108,7 +107,7 @@ While the meat was yet between their teeth, before it was consumed, the anger of
 Therefore the name of that place was called Kibroth-hattaavah, because there they buried the people who had the craving. 
 
 ###### 35 
-From Kibroth-hattaavah the people journeyed to Hazeroth, and they remained at Hazeroth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+From Kibroth-hattaavah the people journeyed to Hazeroth, and they remained at Hazeroth. 
 
 ***
 

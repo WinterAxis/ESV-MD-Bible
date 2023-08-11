@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 An oracle concerning Egypt. Behold, the LORD is riding on a swift cloud and comes to Egypt; and the idols of Egypt will tremble at his presence, and the heart of the Egyptians will melt within them. 
 
@@ -78,7 +77,7 @@ In that day there will be a highway from Egypt to Assyria, and Assyria will come
 In that day Israel will be the third with Egypt and Assyria, a blessing in the midst of the earth, 
 
 ###### 25 
-whom the LORD of hosts has blessed, saying, "Blessed be Egypt my people, and Assyria the work of my hands, and Israel my inheritance." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+whom the LORD of hosts has blessed, saying, "Blessed be Egypt my people, and Assyria the work of my hands, and Israel my inheritance." 
 
 ***
 

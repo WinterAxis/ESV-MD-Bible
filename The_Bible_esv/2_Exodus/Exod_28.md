@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Then bring near to you Aaron your brother, and his sons with him, from among the people of Israel, to serve me as priests--Aaron and Aaron's sons, Nadab and Abihu, Eleazar and Ithamar. 
 
@@ -132,7 +131,7 @@ And you shall put them on Aaron your brother, and on his sons with him, and shal
 You shall make for them linen undergarments to cover their naked flesh. They shall reach from the hips to the thighs; 
 
 ###### 43 
-and they shall be on Aaron and on his sons when they go into the tent of meeting or when they come near the altar to minister in the Holy Place, lest they bear guilt and die. This shall be a statute forever for him and for his offspring after him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and they shall be on Aaron and on his sons when they go into the tent of meeting or when they come near the altar to minister in the Holy Place, lest they bear guilt and die. This shall be a statute forever for him and for his offspring after him. 
 
 ***
 

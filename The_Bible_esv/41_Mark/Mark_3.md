@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Again he entered the synagogue, and a man was there with a withered hand. 
 
@@ -108,7 +107,7 @@ And he answered them, **"Who are my mother and my brothers?"**
 And looking about at those who sat around him, he said, **"Here are my mother and my brothers!** 
 
 ###### 35 
-For whoever does the will of God, he is my brother and sister and mother." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For whoever does the will of God, he is my brother and sister and mother." 
 
 ***
 

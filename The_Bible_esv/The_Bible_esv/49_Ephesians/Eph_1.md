@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, an apostle of Christ Jesus by the will of God, To the saints who are in Ephesus, and are faithful in Christ Jesus: 
 
@@ -72,7 +71,7 @@ far above all rule and authority and power and dominion, and above every name th
 And he put all things under his feet and gave him as head over all things to the church, 
 
 ###### 23 
-which is his body, the fullness of him who fills all in all. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+which is his body, the fullness of him who fills all in all. 
 
 ***
 

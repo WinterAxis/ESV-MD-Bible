@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this Jesus went about in Galilee. He would not go about in Judea, because the Jews were seeking to kill him. 
 
@@ -162,7 +161,7 @@ Nicodemus, who had gone to him before, and who was one of them, said to them,
 They replied, "Are you from Galilee too? Search and see that no prophet arises from Galilee." [The earliest manuscripts do not include 7:53–8:11.] ## The Woman Caught in Adultery 
 
 ###### 53 
-[[They went each to his own house, ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+[[They went each to his own house, 
 
 ***
 

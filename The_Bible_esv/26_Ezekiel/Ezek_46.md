@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Thus says the Lord God: The gate of the inner court that faces east shall be shut on the six working days, but on the Sabbath day it shall be opened, and on the day of the new moon it shall be opened. 
 
@@ -75,7 +74,7 @@ in the four corners of the court were small courts, forty cubits long and thirty
 On the inside, around each of the four courts was a row of masonry, with hearths made at the bottom of the rows all around. 
 
 ###### 24 
-Then he said to me, "These are the kitchens where those who minister at the temple shall boil the sacrifices of the people." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then he said to me, "These are the kitchens where those who minister at the temple shall boil the sacrifices of the people." 
 
 ***
 

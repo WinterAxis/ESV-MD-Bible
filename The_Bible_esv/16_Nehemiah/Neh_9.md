@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now on the twenty-fourth day of this month the people of Israel were assembled with fasting and in sackcloth, and with earth on their heads. 
 
@@ -117,7 +116,7 @@ Behold, we are slaves this day; in the land that you gave to our fathers to enjo
 And its rich yield goes to the kings whom you have set over us because of our sins. They rule over our bodies and over our livestock as they please, and we are in great distress. 
 
 ###### 38 
-"Because of all this we make a firm covenant in writing; on the sealed document are the names of our princes, our Levites, and our priests. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Because of all this we make a firm covenant in writing; on the sealed document are the names of our princes, our Levites, and our priests. 
 
 ***
 

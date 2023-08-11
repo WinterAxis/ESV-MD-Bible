@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So Israel took his journey with all that he had and came to Beersheba, and offered sacrifices to the God of his father Isaac. 
 
@@ -105,7 +104,7 @@ And the men are shepherds, for they have been keepers of livestock, and they hav
 When Pharaoh calls you and says, 'What is your occupation?' 
 
 ###### 34 
-you shall say, 'Your servants have been keepers of livestock from our youth even until now, both we and our fathers,' in order that you may dwell in the land of Goshen, for every shepherd is an abomination to the Egyptians." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+you shall say, 'Your servants have been keepers of livestock from our youth even until now, both we and our fathers,' in order that you may dwell in the land of Goshen, for every shepherd is an abomination to the Egyptians." 
 
 ***
 

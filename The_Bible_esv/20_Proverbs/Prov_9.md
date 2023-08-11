@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Wisdom has built her house; she has hewn her seven pillars. 
 
@@ -57,7 +56,7 @@ calling to those who pass by, who are going straight on their way,
 "Stolen water is sweet, and bread eaten in secret is pleasant." 
 
 ###### 18 
-But he does not know that the dead are there, that her guests are in the depths of Sheol. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But he does not know that the dead are there, that her guests are in the depths of Sheol. 
 
 ***
 

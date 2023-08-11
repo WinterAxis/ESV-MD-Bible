@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Then we turned and journeyed into the wilderness in the direction of the Red Sea, as the LORD told me. And for many days we traveled around Mount Seir. 
 
@@ -114,7 +113,7 @@ Only the livestock we took as spoil for ourselves, with the plunder of the citie
 From Aroer, which is on the edge of the Valley of the Arnon, and from the city that is in the valley, as far as Gilead, there was not a city too high for us. The LORD our God gave all into our hands. 
 
 ###### 37 
-Only to the land of the sons of Ammon you did not draw near, that is, to all the banks of the river Jabbok and the cities of the hill country, whatever the LORD our God had forbidden us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Only to the land of the sons of Ammon you did not draw near, that is, to all the banks of the river Jabbok and the cities of the hill country, whatever the LORD our God had forbidden us. 
 
 ***
 

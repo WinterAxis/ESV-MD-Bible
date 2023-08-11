@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -90,7 +89,7 @@ And of the tribe of the people of Asher a chief, Ahihud the son of Shelomi.
 Of the tribe of the people of Naphtali a chief, Pedahel the son of Ammihud." 
 
 ###### 29 
-These are the men whom the LORD commanded to divide the inheritance for the people of Israel in the land of Canaan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the men whom the LORD commanded to divide the inheritance for the people of Israel in the land of Canaan. 
 
 ***
 

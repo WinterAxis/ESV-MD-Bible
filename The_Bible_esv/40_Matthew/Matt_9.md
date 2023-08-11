@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And getting into a boat he crossed over and came to his own city. 
 
@@ -117,7 +116,7 @@ When he saw the crowds, he had compassion for them, because they were harassed a
 Then he said to his disciples, **"The harvest is plentiful, but the laborers are few;** 
 
 ###### 38 
-therefore pray earnestly to the Lord of the harvest to send out laborers into his harvest." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+therefore pray earnestly to the Lord of the harvest to send out laborers into his harvest." 
 
 ***
 

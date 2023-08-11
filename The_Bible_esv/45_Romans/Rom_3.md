@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then what advantage has the Jew? Or what is the value of circumcision? 
 
@@ -96,7 +95,7 @@ Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gent
 since God is one--who will justify the circumcised by faith and the uncircumcised through faith. 
 
 ###### 31 
-Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. 
 
 ***
 

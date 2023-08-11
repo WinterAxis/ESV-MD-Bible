@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And as soon as it was morning, the chief priests held a consultation with the elders and scribes and the whole council. And they bound Jesus and led him away and delivered him over to Pilate. 
 
@@ -141,7 +140,7 @@ And when he learned from the centurion that he was dead, he granted the corpse t
 And Joseph bought a linen shroud, and taking him down, wrapped him in the linen shroud and laid him in a tomb that had been cut out of the rock. And he rolled a stone against the entrance of the tomb. 
 
 ###### 47 
-Mary Magdalene and Mary the mother of Joses saw where he was laid. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Mary Magdalene and Mary the mother of Joses saw where he was laid. 
 
 ***
 

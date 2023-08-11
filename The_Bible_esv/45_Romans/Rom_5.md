@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. 
 
@@ -66,7 +65,7 @@ For as by the one man's disobedience the many were made sinners, so by the one m
 Now the law came in to increase the trespass, but where sin increased, grace abounded all the more, 
 
 ###### 21 
-so that, as sin reigned in death, grace also might reign through righteousness leading to eternal life through Jesus Christ our Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that, as sin reigned in death, grace also might reign through righteousness leading to eternal life through Jesus Christ our Lord. 
 
 ***
 

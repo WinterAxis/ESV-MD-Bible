@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Isaac called Jacob and blessed him and directed him, "You must not take a wife from the Canaanite women. 
 
@@ -69,7 +68,7 @@ Then Jacob made a vow, saying, "If God will be with me and will keep me in this 
 so that I come again to my father's house in peace, then the LORD shall be my God, 
 
 ###### 22 
-and this stone, which I have set up for a pillar, shall be God's house. And of all that you give me I will give a full tenth to you." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and this stone, which I have set up for a pillar, shall be God's house. And of all that you give me I will give a full tenth to you." 
 
 ***
 

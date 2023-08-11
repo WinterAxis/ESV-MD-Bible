@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Be not envious of evil men, nor desire to be with them, 
 
@@ -105,7 +104,7 @@ Then I saw and considered it; I looked and received instruction.
 A little sleep, a little slumber, a little folding of the hands to rest, 
 
 ###### 34 
-and poverty will come upon you like a robber, and want like an armed man. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and poverty will come upon you like a robber, and want like an armed man. 
 
 ***
 

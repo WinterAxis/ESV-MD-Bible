@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the first book, O Theophilus, I have dealt with all that Jesus began to do and teach, 
 
@@ -81,7 +80,7 @@ And they prayed and said, "You, Lord, who know the hearts of all, show which one
 to take the place in this ministry and apostleship from which Judas turned aside to go to his own place." 
 
 ###### 26 
-And they cast lots for them, and the lot fell on Matthias, and he was numbered with the eleven apostles. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they cast lots for them, and the lot fell on Matthias, and he was numbered with the eleven apostles. 
 
 ***
 

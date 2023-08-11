@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then all the commanders of the forces, and Johanan the son of Kareah and Jezaniah the son of Hoshaiah, and all the people from the least to the greatest, came near 
 
@@ -69,7 +68,7 @@ that you have gone astray at the cost of your lives. For you sent me to the LORD
 And I have this day declared it to you, but you have not obeyed the voice of the LORD your God in anything that he sent me to tell you. 
 
 ###### 22 
-Now therefore know for a certainty that you shall die by the sword, by famine, and by pestilence in the place where you desire to go to live." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now therefore know for a certainty that you shall die by the sword, by famine, and by pestilence in the place where you desire to go to live." 
 
 ***
 

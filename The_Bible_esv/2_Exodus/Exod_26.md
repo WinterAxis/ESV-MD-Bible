@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Moreover, you shall make the tabernacle with ten curtains of fine twined linen and blue and purple and scarlet yarns; you shall make them with cherubim skillfully worked into them. 
 
@@ -114,7 +113,7 @@ And you shall set the table outside the veil, and the lampstand on the south sid
 "You shall make a screen for the entrance of the tent, of blue and purple and scarlet yarns and fine twined linen, embroidered with needlework. 
 
 ###### 37 
-And you shall make for the screen five pillars of acacia, and overlay them with gold. Their hooks shall be of gold, and you shall cast five bases of bronze for them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall make for the screen five pillars of acacia, and overlay them with gold. Their hooks shall be of gold, and you shall cast five bases of bronze for them. 
 
 ***
 

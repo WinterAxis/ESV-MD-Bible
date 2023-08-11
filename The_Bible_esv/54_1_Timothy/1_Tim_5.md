@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Do not rebuke an older man but encourage him as you would a father, younger men as brothers, 
 
@@ -78,7 +77,7 @@ Do not be hasty in the laying on of hands, nor take part in the sins of others; 
 The sins of some people are conspicuous, going before them to judgment, but the sins of others appear later. 
 
 ###### 25 
-So also good works are conspicuous, and even those that are not cannot remain hidden. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So also good works are conspicuous, and even those that are not cannot remain hidden. 
 
 ***
 

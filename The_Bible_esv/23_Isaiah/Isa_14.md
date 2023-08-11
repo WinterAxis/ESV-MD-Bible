@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 For the LORD will have compassion on Jacob and will again choose Israel, and will set them in their own land, and sojourners will join them and will attach themselves to the house of Jacob. 
 
@@ -99,7 +98,7 @@ And the firstborn of the poor will graze, and the needy lie down in safety; but 
 Wail, O gate; cry out, O city; melt in fear, O Philistia, all of you! For smoke comes out of the north, and there is no straggler in his ranks. 
 
 ###### 32 
-What will one answer the messengers of the nation? "The LORD has founded Zion, and in her the afflicted of his people find refuge." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+What will one answer the messengers of the nation? "The LORD has founded Zion, and in her the afflicted of his people find refuge." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 A soft answer turns away wrath, but a harsh word stirs up anger. 
 
@@ -102,7 +101,7 @@ The ear that listens to life-giving reproof will dwell among the wise.
 Whoever ignores instruction despises himself, but he who listens to reproof gains intelligence. 
 
 ###### 33 
-The fear of the LORD is instruction in wisdom, and humility comes before honor. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The fear of the LORD is instruction in wisdom, and humility comes before honor. 
 
 ***
 

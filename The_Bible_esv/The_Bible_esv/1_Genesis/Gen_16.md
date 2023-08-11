@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Sarai, Abram's wife, had borne him no children. She had a female Egyptian servant whose name was Hagar. 
 
@@ -51,7 +50,7 @@ Therefore the well was called Beer-lahai-roi; it lies between Kadesh and Bered.
 And Hagar bore Abram a son, and Abram called the name of his son, whom Hagar bore, Ishmael. 
 
 ###### 16 
-Abram was eighty-six years old when Hagar bore Ishmael to Abram. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Abram was eighty-six years old when Hagar bore Ishmael to Abram. 
 
 ***
 

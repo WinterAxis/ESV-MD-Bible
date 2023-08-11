@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Samson went down to Timnah, and at Timnah he saw one of the daughters of the Philistines. 
 
@@ -63,7 +62,7 @@ And the men of the city said to him on the seventh day before the sun went down,
 And the Spirit of the LORD rushed upon him, and he went down to Ashkelon and struck down thirty men of the town and took their spoil and gave the garments to those who had told the riddle. In hot anger he went back to his father's house. 
 
 ###### 20 
-And Samson's wife was given to his companion, who had been his best man. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Samson's wife was given to his companion, who had been his best man. 
 
 ***
 

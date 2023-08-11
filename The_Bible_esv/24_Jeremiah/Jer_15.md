@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to me, "Though Moses and Samuel stood before me, yet my heart would not turn toward this people. Send them out of my sight, and let them go! 
 
@@ -66,7 +65,7 @@ Therefore thus says the LORD: "If you return, I will restore you, and you shall 
 And I will make you to this people a fortified wall of bronze; they will fight against you, but they shall not prevail over you, for I am with you to save you and deliver you, declares the LORD. 
 
 ###### 21 
-I will deliver you out of the hand of the wicked, and redeem you from the grasp of the ruthless." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will deliver you out of the hand of the wicked, and redeem you from the grasp of the ruthless." 
 
 ***
 

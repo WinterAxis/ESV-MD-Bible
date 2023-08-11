@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The words of Agur son of Jakeh. The oracle. The man declares, I am weary, O God; I am weary, O God, and worn out. 
 
@@ -102,7 +101,7 @@ the strutting rooster, the he-goat, and a king whose army is with him.
 If you have been foolish, exalting yourself, or if you have been devising evil, put your hand on your mouth. 
 
 ###### 33 
-For pressing milk produces curds, pressing the nose produces blood, and pressing anger produces strife. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For pressing milk produces curds, pressing the nose produces blood, and pressing anger produces strife. 
 
 ***
 

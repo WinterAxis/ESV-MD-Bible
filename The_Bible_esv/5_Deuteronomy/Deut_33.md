@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 This is the blessing with which Moses the man of God blessed the people of Israel before his death. 
 
@@ -90,7 +89,7 @@ The eternal God is your dwelling place, and underneath are the everlasting arms.
 So Israel lived in safety, Jacob lived alone, in a land of grain and wine, whose heavens drop down dew. 
 
 ###### 29 
-Happy are you, O Israel! Who is like you, a people saved by the LORD, the shield of your help, and the sword of your triumph! Your enemies shall come fawning to you, and you shall tread upon their backs." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Happy are you, O Israel! Who is like you, a people saved by the LORD, the shield of your help, and the sword of your triumph! Your enemies shall come fawning to you, and you shall tread upon their backs." 
 
 ***
 

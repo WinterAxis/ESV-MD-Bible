@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the first year of Belshazzar king of Babylon, Daniel saw a dream and visions of his head as he lay in his bed. Then he wrote down the dream and told the sum of the matter. 
 
@@ -87,7 +86,7 @@ But the court shall sit in judgment, and his dominion shall be taken away, to be
 And the kingdom and the dominion and the greatness of the kingdoms under the whole heaven shall be given to the people of the saints of the Most High; his kingdom shall be an everlasting kingdom, and all dominions shall serve and obey him.' 
 
 ###### 28 
-"Here is the end of the matter. As for me, Daniel, my thoughts greatly alarmed me, and my color changed, but I kept the matter in my heart." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Here is the end of the matter. As for me, Daniel, my thoughts greatly alarmed me, and my color changed, but I kept the matter in my heart." 
 
 ***
 

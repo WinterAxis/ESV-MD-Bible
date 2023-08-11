@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I mean that the heir, as long as he is a child, is no different from a slave, though he is the owner of everything, 
 
@@ -96,7 +95,7 @@ But just as at that time he who was born according to the flesh persecuted him w
 But what does the Scripture say? "Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman." 
 
 ###### 31 
-So, brothers, we are not children of the slave but of the free woman. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So, brothers, we are not children of the slave but of the free woman. 
 
 ***
 

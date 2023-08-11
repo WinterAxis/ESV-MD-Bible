@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Jeremiah concerning the drought: 
 
@@ -69,7 +68,7 @@ We acknowledge our wickedness, O LORD, and the iniquity of our fathers, for we h
 Do not spurn us, for your name's sake; do not dishonor your glorious throne; remember and do not break your covenant with us. 
 
 ###### 22 
-Are there any among the false gods of the nations that can bring rain? Or can the heavens give showers? Are you not he, O LORD our God? We set our hope on you, for you do all these things. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Are there any among the false gods of the nations that can bring rain? Or can the heavens give showers? Are you not he, O LORD our God? We set our hope on you, for you do all these things. 
 
 ***
 

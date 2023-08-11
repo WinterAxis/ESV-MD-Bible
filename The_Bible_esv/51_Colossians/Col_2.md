@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 For I want you to know how great a struggle I have for you and for those at Laodicea and for all who have not seen me face to face, 
 
@@ -72,7 +71,7 @@ If with Christ you died to the elemental spirits of the world, why, as if you we
 (referring to things that all perish as they are used)--according to human precepts and teachings? 
 
 ###### 23 
-These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. 
 
 ***
 

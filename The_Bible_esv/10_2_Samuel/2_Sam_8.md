@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this David defeated the Philistines and subdued them, and David took Metheg-ammah out of the hand of the Philistines. 
 
@@ -57,7 +56,7 @@ Joab the son of Zeruiah was over the army, and Jehoshaphat the son of Ahilud was
 and Zadok the son of Ahitub and Ahimelech the son of Abiathar were priests, and Seraiah was secretary, 
 
 ###### 18 
-and Benaiah the son of Jehoiada was over the Cherethites and the Pelethites, and David's sons were priests. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and Benaiah the son of Jehoiada was over the Cherethites and the Pelethites, and David's sons were priests. 
 
 ***
 

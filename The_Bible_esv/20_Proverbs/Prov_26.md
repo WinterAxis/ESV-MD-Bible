@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Like snow in summer or rain in harvest, so honor is not fitting for a fool. 
 
@@ -87,7 +86,7 @@ though his hatred be covered with deception, his wickedness will be exposed in t
 Whoever digs a pit will fall into it, and a stone will come back on him who starts it rolling. 
 
 ###### 28 
-A lying tongue hates its victims, and a flattering mouth works ruin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+A lying tongue hates its victims, and a flattering mouth works ruin. 
 
 ***
 

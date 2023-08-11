@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You shall not see your brother's ox or his sheep going astray and ignore them. You shall take them back to your brother. 
 
@@ -93,7 +92,7 @@ because he met her in the open country, and though the betrothed young woman cri
 then the man who lay with her shall give to the father of the young woman fifty shekels of silver, and she shall be his wife, because he has violated her. He may not divorce her all his days. 
 
 ###### 30 
-"A man shall not take his father's wife, so that he does not uncover his father's nakedness. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"A man shall not take his father's wife, so that he does not uncover his father's nakedness. 
 
 ***
 

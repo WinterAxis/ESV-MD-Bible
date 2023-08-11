@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And when it was decided that we should sail for Italy, they delivered Paul and some other prisoners to a centurion of the Augustan Cohort named Julius. 
 
@@ -135,7 +134,7 @@ The soldiers' plan was to kill the prisoners, lest any should swim away and esca
 But the centurion, wishing to save Paul, kept them from carrying out their plan. He ordered those who could swim to jump overboard first and make for the land, 
 
 ###### 44 
-and the rest on planks or on pieces of the ship. And so it was that all were brought safely to land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and the rest on planks or on pieces of the ship. And so it was that all were brought safely to land. 
 
 ***
 

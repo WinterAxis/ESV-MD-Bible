@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the adversaries of Judah and Benjamin heard that the returned exiles were building a temple to the LORD, the God of Israel, 
 
@@ -75,7 +74,7 @@ And take care not to be slack in this matter. Why should damage grow to the hurt
 Then, when the copy of King Artaxerxes' letter was read before Rehum and Shimshai the scribe and their associates, they went in haste to the Jews at Jerusalem and by force and power made them cease. 
 
 ###### 24 
-Then the work on the house of God that is in Jerusalem stopped, and it ceased until the second year of the reign of Darius king of Persia. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the work on the house of God that is in Jerusalem stopped, and it ceased until the second year of the reign of Darius king of Persia. 
 
 ***
 

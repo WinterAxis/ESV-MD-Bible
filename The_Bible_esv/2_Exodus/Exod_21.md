@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Now these are the rules that you shall set before them. 
 
@@ -111,7 +110,7 @@ the owner of the pit shall make restoration. He shall give money to its owner, a
 "When one man's ox butts another's, so that it dies, then they shall sell the live ox and share its price, and the dead beast also they shall share. 
 
 ###### 36 
-Or if it is known that the ox has been accustomed to gore in the past, and its owner has not kept it in, he shall repay ox for ox, and the dead beast shall be his. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Or if it is known that the ox has been accustomed to gore in the past, and its owner has not kept it in, he shall repay ox for ox, and the dead beast shall be his. 
 
 ***
 

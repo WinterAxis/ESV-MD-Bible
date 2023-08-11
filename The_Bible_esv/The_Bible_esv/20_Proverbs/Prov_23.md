@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When you sit down to eat with a ruler, observe carefully what is before you, 
 
@@ -108,7 +107,7 @@ Your eyes will see strange things, and your heart utter perverse things.
 You will be like one who lies down in the midst of the sea, like one who lies on the top of a mast. 
 
 ###### 35 
-"They struck me," you will say, "but I was not hurt; they beat me, but I did not feel it. When shall I awake? I must have another drink." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"They struck me," you will say, "but I was not hurt; they beat me, but I did not feel it. When shall I awake? I must have another drink." 
 
 ***
 

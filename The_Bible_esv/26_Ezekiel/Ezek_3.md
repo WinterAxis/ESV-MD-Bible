@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he said to me, "Son of man, eat whatever you find here. Eat this scroll, and go, speak to the house of Israel." 
 
@@ -84,7 +83,7 @@ And you, O son of man, behold, cords will be placed upon you, and you shall be b
 And I will make your tongue cling to the roof of your mouth, so that you shall be mute and unable to reprove them, for they are a rebellious house. 
 
 ###### 27 
-But when I speak with you, I will open your mouth, and you shall say to them, 'Thus says the Lord God.' He who will hear, let him hear; and he who will refuse to hear, let him refuse, for they are a rebellious house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But when I speak with you, I will open your mouth, and you shall say to them, 'Thus says the Lord God.' He who will hear, let him hear; and he who will refuse to hear, let him refuse, for they are a rebellious house. 
 
 ***
 

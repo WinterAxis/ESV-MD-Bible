@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Job answered and said: 
 
@@ -90,7 +89,7 @@ whom I shall see for myself, and my eyes shall behold, and not another. My heart
 If you say, 'How we will pursue him!' and, 'The root of the matter is found in him,' 
 
 ###### 29 
-be afraid of the sword, for wrath brings the punishment of the sword, that you may know there is a judgment." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+be afraid of the sword, for wrath brings the punishment of the sword, that you may know there is a judgment." 
 
 ***
 

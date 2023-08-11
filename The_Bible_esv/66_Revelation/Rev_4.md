@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this I looked, and behold, a door standing open in heaven! And the first voice, which I had heard speaking to me like a trumpet, said, **"Come up here, and I will show you what must take place after this."** 
 
@@ -36,7 +35,7 @@ And whenever the living creatures give glory and honor and thanks to him who is 
 the twenty-four elders fall down before him who is seated on the throne and worship him who lives forever and ever. They cast their crowns before the throne, saying, 
 
 ###### 11 
-"Worthy are you, our Lord and God, to receive glory and honor and power, for you created all things, and by your will they existed and were created." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Worthy are you, our Lord and God, to receive glory and honor and power, for you created all things, and by your will they existed and were created." 
 
 ***
 

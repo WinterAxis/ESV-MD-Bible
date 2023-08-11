@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as all the kings of the Amorites who were beyond the Jordan to the west, and all the kings of the Canaanites who were by the sea, heard that the LORD had dried up the waters of the Jordan for the people of Israel until they had crossed over, their hearts melted and there was no longer any spirit in them because of the people of Israel. 
 
@@ -48,7 +47,7 @@ When Joshua was by Jericho, he lifted up his eyes and looked, and behold, a man 
 And he said, "No; but I am the commander of the army of the LORD. Now I have come." And Joshua fell on his face to the earth and worshiped and said to him, "What does my lord say to his servant?" 
 
 ###### 15 
-And the commander of the LORD's army said to Joshua, "Take off your sandals from your feet, for the place where you are standing is holy." And Joshua did so. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the commander of the LORD's army said to Joshua, "Take off your sandals from your feet, for the place where you are standing is holy." And Joshua did so. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD: "Keep justice, and do righteousness, for soon my salvation will come, and my righteousness be revealed. 
 
@@ -39,7 +38,7 @@ His watchmen are blind; they are all without knowledge; they are all silent dogs
 The dogs have a mighty appetite; they never have enough. But they are shepherds who have no understanding; they have all turned to their own way, each to his own gain, one and all. 
 
 ###### 12 
-"Come," they say, "let me get wine; let us fill ourselves with strong drink; and tomorrow will be like this day, great beyond measure." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Come," they say, "let me get wine; let us fill ourselves with strong drink; and tomorrow will be like this day, great beyond measure." 
 
 ***
 

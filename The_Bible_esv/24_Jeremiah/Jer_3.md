@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If a man divorces his wife and she goes from him and becomes another man's wife, will he return to her? Would not that land be greatly polluted? You have played the whore with many lovers; and would you return to me? declares the LORD. 
 
@@ -78,7 +77,7 @@ Truly the hills are a delusion, the orgies on the mountains. Truly in the LORD o
 "But from our youth the shameful thing has devoured all for which our fathers labored, their flocks and their herds, their sons and their daughters. 
 
 ###### 25 
-Let us lie down in our shame, and let our dishonor cover us. For we have sinned against the LORD our God, we and our fathers, from our youth even to this day, and we have not obeyed the voice of the LORD our God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Let us lie down in our shame, and let our dishonor cover us. For we have sinned against the LORD our God, we and our fathers, from our youth even to this day, and we have not obeyed the voice of the LORD our God." 
 
 ***
 

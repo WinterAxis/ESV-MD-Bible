@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle that Habakkuk the prophet saw. ## Habakkuk's Complaint 
 
@@ -54,7 +53,7 @@ He brings all of them up with a hook; he drags them out with his net; he gathers
 Therefore he sacrifices to his net and makes offerings to his dragnet; for by them he lives in luxury, and his food is rich. 
 
 ###### 17 
-Is he then to keep on emptying his net and mercilessly killing nations forever? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Is he then to keep on emptying his net and mercilessly killing nations forever? 
 
 ***
 

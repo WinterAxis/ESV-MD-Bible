@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the Pharisees and Sadducees came, and to test him they asked him to show them a sign from heaven. 
 
@@ -87,7 +86,7 @@ For what will it profit a man if he gains the whole world and forfeits his soul?
 For the Son of Man is going to come with his angels in the glory of his Father, and then he will repay each person according to what he has done. 
 
 ###### 28 
-Truly, I say to you, there are some standing here who will not taste death until they see the Son of Man coming in his kingdom." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Truly, I say to you, there are some standing here who will not taste death until they see the Son of Man coming in his kingdom." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD said to Moses, "Cut for yourself two tablets of stone like the first, and I will write on the tablets the words that were on the first tablets, which you broke. 
 
@@ -108,7 +107,7 @@ And when Moses had finished speaking with them, he put a veil over his face.
 Whenever Moses went in before the LORD to speak with him, he would remove the veil, until he came out. And when he came out and told the people of Israel what he was commanded, 
 
 ###### 35 
-the people of Israel would see the face of Moses, that the skin of Moses' face was shining. And Moses would put the veil over his face again, until he went in to speak with him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the people of Israel would see the face of Moses, that the skin of Moses' face was shining. And Moses would put the veil over his face again, until he went in to speak with him. 
 
 ***
 

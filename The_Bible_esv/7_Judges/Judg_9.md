@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Abimelech the son of Jerubbaal went to Shechem to his mother's relatives and said to them and to the whole clan of his mother's family, 
 
@@ -174,7 +173,7 @@ And when the men of Israel saw that Abimelech was dead, everyone departed to his
 Thus God returned the evil of Abimelech, which he committed against his father in killing his seventy brothers. 
 
 ###### 57 
-And God also made all the evil of the men of Shechem return on their heads, and upon them came the curse of Jotham the son of Jerubbaal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And God also made all the evil of the men of Shechem return on their heads, and upon them came the curse of Jotham the son of Jerubbaal. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear the word of the LORD, O children of Israel, for the LORD has a controversy with the inhabitants of the land. There is no faithfulness or steadfast love, and no knowledge of God in the land; 
 
@@ -57,7 +56,7 @@ Ephraim is joined to idols; leave him alone.
 When their drink is gone, they give themselves to whoring; their rulers dearly love shame. 
 
 ###### 19 
-A wind has wrapped them in its wings, and they shall be ashamed because of their sacrifices. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+A wind has wrapped them in its wings, and they shall be ashamed because of their sacrifices. 
 
 ***
 

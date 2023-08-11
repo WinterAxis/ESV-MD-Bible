@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with me. 
 
@@ -66,7 +65,7 @@ For through the law I died to the law, so that I might live to God.
 I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. 
 
 ###### 21 
-I do not nullify the grace of God, for if righteousness were through the law, then Christ died for no purpose. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I do not nullify the grace of God, for if righteousness were through the law, then Christ died for no purpose. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as all the kings who were beyond the Jordan in the hill country and in the lowland all along the coast of the Great Sea toward Lebanon, the Hittites, the Amorites, the Canaanites, the Perizzites, the Hivites, and the Jebusites, heard of this, 
 
@@ -84,7 +83,7 @@ And now, behold, we are in your hand. Whatever seems good and right in your sigh
 So he did this to them and delivered them out of the hand of the people of Israel, and they did not kill them. 
 
 ###### 27 
-But Joshua made them that day cutters of wood and drawers of water for the congregation and for the altar of the LORD, to this day, in the place that he should choose. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But Joshua made them that day cutters of wood and drawers of water for the congregation and for the altar of the LORD, to this day, in the place that he should choose. 
 
 ***
 

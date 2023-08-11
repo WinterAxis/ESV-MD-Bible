@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD after Nebuzaradan the captain of the guard had let him go from Ramah, when he took him bound in chains along with all the captives of Jerusalem and Judah who were being exiled to Babylon. 
 
@@ -51,7 +50,7 @@ and said to him, "Do you know that Baalis the king of the Ammonites has sent Ish
 Then Johanan the son of Kareah spoke secretly to Gedaliah at Mizpah, "Please let me go and strike down Ishmael the son of Nethaniah, and no one will know it. Why should he take your life, so that all the Judeans who are gathered about you would be scattered, and the remnant of Judah would perish?" 
 
 ###### 16 
-But Gedaliah the son of Ahikam said to Johanan the son of Kareah, "You shall not do this thing, for you are speaking falsely of Ishmael." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But Gedaliah the son of Ahikam said to Johanan the son of Kareah, "You shall not do this thing, for you are speaking falsely of Ishmael." 
 
 ***
 

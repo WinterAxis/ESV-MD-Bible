@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when Sanballat heard that we were building the wall, he was angry and greatly enraged, and he jeered at the Jews. 
 
@@ -72,7 +71,7 @@ So we labored at the work, and half of them held the spears from the break of da
 I also said to the people at that time, "Let every man and his servant pass the night within Jerusalem, that they may be a guard for us by night and may labor by day." 
 
 ###### 23 
-So neither I nor my brothers nor my servants nor the men of the guard who followed me, none of us took off our clothes; each kept his weapon at his right hand. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So neither I nor my brothers nor my servants nor the men of the guard who followed me, none of us took off our clothes; each kept his weapon at his right hand. 
 
 ***
 

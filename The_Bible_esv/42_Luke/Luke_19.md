@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 He entered Jericho and was passing through. 
 
@@ -147,7 +146,7 @@ saying to them, **"It is written, 'My house shall be a house of prayer,' but you
 And he was teaching daily in the temple. The chief priests and the scribes and the principal men of the people were seeking to destroy him, 
 
 ###### 48 
-but they did not find anything they could do, for all the people were hanging on his words. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but they did not find anything they could do, for all the people were hanging on his words. 
 
 ***
 

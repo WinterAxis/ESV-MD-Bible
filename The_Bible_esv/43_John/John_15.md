@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "I am the true vine, and my Father is the vinedresser. 
 
@@ -84,7 +83,7 @@ But the word that is written in their Law must be fulfilled: 'They hated me with
 "But when the Helper comes, whom I will send to you from the Father, the Spirit of truth, who proceeds from the Father, he will bear witness about me. 
 
 ###### 27 
-And you also will bear witness, because you have been with me from the beginning. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you also will bear witness, because you have been with me from the beginning. 
 
 ***
 

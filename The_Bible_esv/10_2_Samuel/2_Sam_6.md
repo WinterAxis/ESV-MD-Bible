@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 David again gathered all the chosen men of Israel, thirty thousand. 
 
@@ -72,7 +71,7 @@ And David said to Michal, "It was before the LORD, who chose me above your fathe
 I will make myself yet more contemptible than this, and I will be abased in your eyes. But by the female servants of whom you have spoken, by them I shall be held in honor." 
 
 ###### 23 
-And Michal the daughter of Saul had no child to the day of her death. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Michal the daughter of Saul had no child to the day of her death. 
 
 ***
 

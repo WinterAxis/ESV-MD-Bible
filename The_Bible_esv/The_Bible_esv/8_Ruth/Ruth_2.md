@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Naomi had a relative of her husband's, a worthy man of the clan of Elimelech, whose name was Boaz. 
 
@@ -72,7 +71,7 @@ And Ruth the Moabite said, "Besides, he said to me, 'You shall keep close by my 
 And Naomi said to Ruth, her daughter-in-law, "It is good, my daughter, that you go out with his young women, lest in another field you be assaulted." 
 
 ###### 23 
-So she kept close to the young women of Boaz, gleaning until the end of the barley and wheat harvests. And she lived with her mother-in-law. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So she kept close to the young women of Boaz, gleaning until the end of the barley and wheat harvests. And she lived with her mother-in-law. 
 
 ***
 

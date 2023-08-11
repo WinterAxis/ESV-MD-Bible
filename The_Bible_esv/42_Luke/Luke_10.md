@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this the Lord appointed seventy-two others and sent them on ahead of him, two by two, into every town and place where he himself was about to go. 
 
@@ -129,7 +128,7 @@ But Martha was distracted with much serving. And she went up to him and said, "L
 But the Lord answered her, **"Martha, Martha, you are anxious and troubled about many things,** 
 
 ###### 42 
-but one thing is necessary. Mary has chosen the good portion, which will not be taken away from her." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but one thing is necessary. Mary has chosen the good portion, which will not be taken away from her." 
 
 ***
 

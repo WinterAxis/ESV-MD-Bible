@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At that time Joshua summoned the Reubenites and the Gadites and the half-tribe of Manasseh, 
 
@@ -105,7 +104,7 @@ Then Phinehas the son of Eleazar the priest, and the chiefs, returned from the p
 And the report was good in the eyes of the people of Israel. And the people of Israel blessed God and spoke no more of making war against them to destroy the land where the people of Reuben and the people of Gad were settled. 
 
 ###### 34 
-The people of Reuben and the people of Gad called the altar Witness, "For," they said, "it is a witness between us that the LORD is God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The people of Reuben and the people of Gad called the altar Witness, "For," they said, "it is a witness between us that the LORD is God." 
 
 ***
 

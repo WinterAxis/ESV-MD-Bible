@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 For Zion's sake I will not keep silent, and for Jerusalem's sake I will not be quiet, until her righteousness goes forth as brightness, and her salvation as a burning torch. 
 
@@ -39,7 +38,7 @@ Go through, go through the gates; prepare the way for the people; build up, buil
 Behold, the LORD has proclaimed to the end of the earth: Say to the daughter of Zion, "Behold, your salvation comes; behold, his reward is with him, and his recompense before him." 
 
 ###### 12 
-And they shall be called The Holy People, The Redeemed of the LORD; and you shall be called Sought Out, A City Not Forsaken. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they shall be called The Holy People, The Redeemed of the LORD; and you shall be called Sought Out, A City Not Forsaken. 
 
 ***
 

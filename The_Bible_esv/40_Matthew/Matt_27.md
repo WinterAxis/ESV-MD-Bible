@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When morning came, all the chief priests and the elders of the people took counsel against Jesus to put him to death. 
 
@@ -201,7 +200,7 @@ Therefore order the tomb to be made secure until the third day, lest his discipl
 Pilate said to them, "You have a guard of soldiers. Go, make it as secure as you can." 
 
 ###### 66 
-So they went and made the tomb secure by sealing the stone and setting a guard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they went and made the tomb secure by sealing the stone and setting a guard. 
 
 ***
 

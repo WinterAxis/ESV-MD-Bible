@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the fourth year of Jehoiakim the son of Josiah, king of Judah, this word came to Jeremiah from the LORD: 
 
@@ -99,7 +98,7 @@ Therefore thus says the LORD concerning Jehoiakim king of Judah: He shall have n
 And I will punish him and his offspring and his servants for their iniquity. I will bring upon them and upon the inhabitants of Jerusalem and upon the people of Judah all the disaster that I have pronounced against them, but they would not hear.'" 
 
 ###### 32 
-Then Jeremiah took another scroll and gave it to Baruch the scribe, the son of Neriah, who wrote on it at the dictation of Jeremiah all the words of the scroll that Jehoiakim king of Judah had burned in the fire. And many similar words were added to them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Jeremiah took another scroll and gave it to Baruch the scribe, the son of Neriah, who wrote on it at the dictation of Jeremiah all the words of the scroll that Jehoiakim king of Judah had burned in the fire. And many similar words were added to them. 
 
 ***
 

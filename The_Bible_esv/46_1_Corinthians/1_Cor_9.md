@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Am I not free? Am I not an apostle? Have I not seen Jesus our Lord? Are not you my workmanship in the Lord? 
 
@@ -84,7 +83,7 @@ Every athlete exercises self-control in all things. They do it to receive a peri
 So I do not run aimlessly; I do not box as one beating the air. 
 
 ###### 27 
-But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. 
 
 ***
 

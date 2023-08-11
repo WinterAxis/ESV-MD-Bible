@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 A long time afterward, when the LORD had given rest to Israel from all their surrounding enemies, and Joshua was old and well advanced in years, 
 
@@ -51,7 +50,7 @@ know for certain that the LORD your God will no longer drive out these nations b
 But just as all the good things that the LORD your God promised concerning you have been fulfilled for you, so the LORD will bring upon you all the evil things, until he has destroyed you from off this good land that the LORD your God has given you, 
 
 ###### 16 
-if you transgress the covenant of the LORD your God, which he commanded you, and go and serve other gods and bow down to them. Then the anger of the LORD will be kindled against you, and you shall perish quickly from off the good land that he has given to you." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+if you transgress the covenant of the LORD your God, which he commanded you, and go and serve other gods and bow down to them. Then the anger of the LORD will be kindled against you, and you shall perish quickly from off the good land that he has given to you." 
 
 ***
 

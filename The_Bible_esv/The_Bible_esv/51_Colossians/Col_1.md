@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, an apostle of Christ Jesus by the will of God, and Timothy our brother, 
 
@@ -90,7 +89,7 @@ To them God chose to make known how great among the Gentiles are the riches of t
 Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present everyone mature in Christ. 
 
 ###### 29 
-For this I toil, struggling with all his energy that he powerfully works within me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For this I toil, struggling with all his energy that he powerfully works within me. 
 
 ***
 

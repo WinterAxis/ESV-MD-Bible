@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And as they were speaking to the people, the priests and the captain of the temple and the Sadducees came upon them, 
 
@@ -114,7 +113,7 @@ and laid it at the apostles' feet, and it was distributed to each as any had nee
 Thus Joseph, who was also called by the apostles Barnabas (which means son of encouragement), a Levite, a native of Cyprus, 
 
 ###### 37 
-sold a field that belonged to him and brought the money and laid it at the apostles' feet. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+sold a field that belonged to him and brought the money and laid it at the apostles' feet. 
 
 ***
 

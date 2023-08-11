@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When you allot the land as an inheritance, you shall set apart for the LORD a portion of the land as a holy district, 25,000 cubits long and 20,000 cubits broad. It shall be holy throughout its whole extent. 
 
@@ -78,7 +77,7 @@ And on the seven days of the festival he shall provide as a burnt offering to th
 And he shall provide as a grain offering an ephah for each bull, an ephah for each ram, and a hin of oil to each ephah. 
 
 ###### 25 
-In the seventh month, on the fifteenth day of the month and for the seven days of the feast, he shall make the same provision for sin offerings, burnt offerings, and grain offerings, and for the oil. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In the seventh month, on the fifteenth day of the month and for the seven days of the feast, he shall make the same provision for sin offerings, burnt offerings, and grain offerings, and for the oil. 
 
 ***
 

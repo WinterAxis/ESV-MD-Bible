@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I commend to you our sister Phoebe, a servant of the church at Cenchreae, 
 
@@ -81,7 +80,7 @@ Now to him who is able to strengthen you according to my gospel and the preachin
 but has now been disclosed and through the prophetic writings has been made known to all nations, according to the command of the eternal God, to bring about the obedience of faith-- 
 
 ###### 27 
-to the only wise God be glory forevermore through Jesus Christ! Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+to the only wise God be glory forevermore through Jesus Christ! Amen. 
 
 ***
 

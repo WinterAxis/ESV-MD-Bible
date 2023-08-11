@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Surely there is a mine for silver, and a place for gold that they refine. 
 
@@ -87,7 +86,7 @@ when he made a decree for the rain and a way for the lightning of the thunder,
 then he saw it and declared it; he established it, and searched it out. 
 
 ###### 28 
-And he said to man, 'Behold, the fear of the Lord, that is wisdom, and to turn away from evil is understanding.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he said to man, 'Behold, the fear of the Lord, that is wisdom, and to turn away from evil is understanding.'" 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the word of the LORD came to Jonah the son of Amittai, saying, 
 
@@ -54,7 +53,7 @@ So they picked up Jonah and hurled him into the sea, and the sea ceased from its
 Then the men feared the LORD exceedingly, and they offered a sacrifice to the LORD and made vows. ## A Great Fish Swallows Jonah 
 
 ###### 17 
-And the LORD appointed a great fish to swallow up Jonah. And Jonah was in the belly of the fish three days and three nights. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the LORD appointed a great fish to swallow up Jonah. And Jonah was in the belly of the fish three days and three nights. 
 
 ***
 

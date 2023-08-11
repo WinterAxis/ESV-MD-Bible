@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Moses was keeping the flock of his father-in-law, Jethro, the priest of Midian, and he led his flock to the west side of the wilderness and came to Horeb, the mountain of God. 
 
@@ -69,7 +68,7 @@ So I will stretch out my hand and strike Egypt with all the wonders that I will 
 And I will give this people favor in the sight of the Egyptians; and when you go, you shall not go empty, 
 
 ###### 22 
-but each woman shall ask of her neighbor, and any woman who lives in her house, for silver and gold jewelry, and for clothing. You shall put them on your sons and on your daughters. So you shall plunder the Egyptians." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but each woman shall ask of her neighbor, and any woman who lives in her house, for silver and gold jewelry, and for clothing. You shall put them on your sons and on your daughters. So you shall plunder the Egyptians." 
 
 ***
 

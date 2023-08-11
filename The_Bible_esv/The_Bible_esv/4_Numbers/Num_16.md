@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Korah the son of Izhar, son of Kohath, son of Levi, and Dathan and Abiram the sons of Eliab, and On the son of Peleth, sons of Reuben, took men. 
 
@@ -153,7 +152,7 @@ And he stood between the dead and the living, and the plague was stopped.
 Now those who died in the plague were 14,700, besides those who died in the affair of Korah. 
 
 ###### 50 
-And Aaron returned to Moses at the entrance of the tent of meeting, when the plague was stopped. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Aaron returned to Moses at the entrance of the tent of meeting, when the plague was stopped. 
 
 ***
 

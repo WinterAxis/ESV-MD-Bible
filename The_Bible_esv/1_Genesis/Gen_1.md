@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the beginning, God created the heavens and the earth. 
 
@@ -96,7 +95,7 @@ And God said, "Behold, I have given you every plant yielding seed that is on the
 And to every beast of the earth and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of life, I have given every green plant for food." And it was so. 
 
 ###### 31 
-And God saw everything that he had made, and behold, it was very good. And there was evening and there was morning, the sixth day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And God saw everything that he had made, and behold, it was very good. And there was evening and there was morning, the sixth day. 
 
 ***
 

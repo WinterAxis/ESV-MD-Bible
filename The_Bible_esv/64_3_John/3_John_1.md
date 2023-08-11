@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The elder to the beloved Gaius, whom I love in truth. 
 
@@ -48,7 +47,7 @@ I had much to write to you, but I would rather not write with pen and ink.
 I hope to see you soon, and we will talk face to face. 
 
 ###### 15 
-Peace be to you. The friends greet you. Greet the friends, each by name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Peace be to you. The friends greet you. Greet the friends, each by name. 
 
 ***
 

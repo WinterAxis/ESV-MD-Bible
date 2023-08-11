@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I was ready to be sought by those who did not ask for me; I was ready to be found by those who did not seek me. I said, "Here I am, here I am," to a nation that was not called by my name. 
 
@@ -78,7 +77,7 @@ They shall not labor in vain or bear children for calamity, for they shall be th
 Before they call I will answer; while they are yet speaking I will hear. 
 
 ###### 25 
-The wolf and the lamb shall graze together; the lion shall eat straw like the ox, and dust shall be the serpent's food. They shall not hurt or destroy in all my holy mountain," says the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The wolf and the lamb shall graze together; the lion shall eat straw like the ox, and dust shall be the serpent's food. They shall not hurt or destroy in all my holy mountain," says the LORD. 
 
 ***
 

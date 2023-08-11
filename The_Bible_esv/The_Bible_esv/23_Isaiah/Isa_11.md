@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There shall come forth a shoot from the stump of Jesse, and a branch from his roots shall bear fruit. 
 
@@ -51,7 +50,7 @@ But they shall swoop down on the shoulder of the Philistines in the west, and to
 And the LORD will utterly destroy the tongue of the Sea of Egypt, and will wave his hand over the River with his scorching breath, and strike it into seven channels, and he will lead people across in sandals. 
 
 ###### 16 
-And there will be a highway from Assyria for the remnant that remains of his people, as there was for Israel when they came up from the land of Egypt. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And there will be a highway from Assyria for the remnant that remains of his people, as there was for Israel when they came up from the land of Egypt. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar. 
 
@@ -135,7 +134,7 @@ I will rejoice in doing them good, and I will plant them in this land in faithfu
 Fields shall be bought in this land of which you are saying, 'It is a desolation, without man or beast; it is given into the hand of the Chaldeans.' 
 
 ###### 44 
-Fields shall be bought for money, and deeds shall be signed and sealed and witnessed, in the land of Benjamin, in the places about Jerusalem, and in the cities of Judah, in the cities of the hill country, in the cities of the Shephelah, and in the cities of the Negeb; for I will restore their fortunes, declares the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Fields shall be bought for money, and deeds shall be signed and sealed and witnessed, in the land of Benjamin, in the places about Jerusalem, and in the cities of Judah, in the cities of the hill country, in the cities of the Shephelah, and in the cities of the Negeb; for I will restore their fortunes, declares the LORD." 
 
 ***
 

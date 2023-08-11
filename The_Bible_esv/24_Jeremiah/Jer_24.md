@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After Nebuchadnezzar king of Babylon had taken into exile from Jerusalem Jeconiah the son of Jehoiakim, king of Judah, together with the officials of Judah, the craftsmen, and the metal workers, and had brought them to Babylon, the LORD showed me this vision: behold, two baskets of figs placed before the temple of the LORD. 
 
@@ -33,7 +32,7 @@ I will give them a heart to know that I am the LORD, and they shall be my people
 I will make them a horror to all the kingdoms of the earth, to be a reproach, a byword, a taunt, and a curse in all the places where I shall drive them. 
 
 ###### 10 
-And I will send sword, famine, and pestilence upon them, until they shall be utterly destroyed from the land that I gave to them and their fathers." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will send sword, famine, and pestilence upon them, until they shall be utterly destroyed from the land that I gave to them and their fathers." 
 
 ***
 

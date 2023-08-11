@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If there is a dispute between men and they come into court and the judges decide between them, acquitting the innocent and condemning the guilty, 
 
@@ -60,7 +59,7 @@ For all who do such things, all who act dishonestly, are an abomination to the L
 how he attacked you on the way when you were faint and weary, and cut off your tail, those who were lagging behind you, and he did not fear God. 
 
 ###### 19 
-Therefore when the LORD your God has given you rest from all your enemies around you, in the land that the LORD your God is giving you for an inheritance to possess, you shall blot out the memory of Amalek from under heaven; you shall not forget. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore when the LORD your God has given you rest from all your enemies around you, in the land that the LORD your God is giving you for an inheritance to possess, you shall blot out the memory of Amalek from under heaven; you shall not forget. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when Sanballat and Tobiah and Geshem the Arab and the rest of our enemies heard that I had built the wall and that there was no breach left in it (although up to that time I had not set up the doors in the gates), 
 
@@ -60,7 +59,7 @@ Moreover, in those days the nobles of Judah sent many letters to Tobiah, and Tob
 For many in Judah were bound by oath to him, because he was the son-in-law of Shecaniah the son of Arah: and his son Jehohanan had taken the daughter of Meshullam the son of Berechiah as his wife. 
 
 ###### 19 
-Also they spoke of his good deeds in my presence and reported my words to him. And Tobiah sent letters to make me afraid. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Also they spoke of his good deeds in my presence and reported my words to him. And Tobiah sent letters to make me afraid. 
 
 ***
 

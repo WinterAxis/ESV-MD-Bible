@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Finally, my brothers, rejoice in the Lord. To write the same things to you is no trouble to me and is safe for you. 
 
@@ -66,7 +65,7 @@ Their end is destruction, their god is their belly, and they glory in their sham
 But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, 
 
 ###### 21 
-who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. 
 
 ***
 

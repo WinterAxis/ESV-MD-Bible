@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And I, when I came to you, brothers, did not come proclaiming to you the testimony of God with lofty speech or wisdom. 
 
@@ -51,7 +50,7 @@ The natural person does not accept the things of the Spirit of God, for they are
 The spiritual person judges all things, but is himself to be judged by no one. 
 
 ###### 16 
-"For who has understood the mind of the Lord so as to instruct him?" But we have the mind of Christ. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"For who has understood the mind of the Lord so as to instruct him?" But we have the mind of Christ. 
 
 ***
 

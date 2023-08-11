@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The scatterer has come up against you. Man the ramparts; watch the road; dress for battle; collect all your strength. 
 
@@ -42,7 +41,7 @@ Where is the lions' den, the feeding place of the young lions, where the lion an
 The lion tore enough for his cubs and strangled prey for his lionesses; he filled his caves with prey and his dens with torn flesh. 
 
 ###### 13 
-Behold, I am against you, declares the LORD of hosts, and I will burn your chariots in smoke, and the sword shall devour your young lions. I will cut off your prey from the earth, and the voice of your messengers shall no longer be heard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, I am against you, declares the LORD of hosts, and I will burn your chariots in smoke, and the sword shall devour your young lions. I will cut off your prey from the earth, and the voice of your messengers shall no longer be heard. 
 
 ***
 

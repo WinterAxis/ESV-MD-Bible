@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Can you draw out Leviathan with a fishhook or press down his tongue with a cord? 
 
@@ -105,7 +104,7 @@ Behind him he leaves a shining wake; one would think the deep to be white-haired
 On earth there is not his like, a creature without fear. 
 
 ###### 34 
-He sees everything that is high; he is king over all the sons of pride." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He sees everything that is high; he is king over all the sons of pride." 
 
 ***
 

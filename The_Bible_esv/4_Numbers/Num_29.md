@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "On the first day of the seventh month you shall have a holy convocation. You shall not do any ordinary work. It is a day for you to blow the trumpets, 
 
@@ -123,7 +122,7 @@ also one male goat for a sin offering; besides the regular burnt offering and it
 "These you shall offer to the LORD at your appointed feasts, in addition to your vow offerings and your freewill offerings, for your burnt offerings, and for your grain offerings, and for your drink offerings, and for your peace offerings." 
 
 ###### 40 
-So Moses told the people of Israel everything just as the LORD had commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Moses told the people of Israel everything just as the LORD had commanded Moses. 
 
 ***
 

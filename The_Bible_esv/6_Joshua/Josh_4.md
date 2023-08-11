@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When all the nation had finished passing over the Jordan, the LORD said to Joshua, 
 
@@ -75,7 +74,7 @@ then you shall let your children know, 'Israel passed over this Jordan on dry gr
 For the LORD your God dried up the waters of the Jordan for you until you passed over, as the LORD your God did to the Red Sea, which he dried up for us until we passed over, 
 
 ###### 24 
-so that all the peoples of the earth may know that the hand of the LORD is mighty, that you may fear the LORD your God forever." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that all the peoples of the earth may know that the hand of the LORD is mighty, that you may fear the LORD your God forever." 
 
 ***
 

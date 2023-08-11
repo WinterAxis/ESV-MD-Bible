@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he said to his disciples, **"Temptations to sin are sure to come, but woe to the one through whom they come!** 
 
@@ -111,7 +110,7 @@ I tell you, in that night there will be two in one bed. One will be taken and th
 There will be two women grinding together. One will be taken and the other left." 
 
 ###### 37 
-And they said to him, "Where, Lord?" He said to them, **"Where the corpse is, there the vultures will gather."** ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they said to him, "Where, Lord?" He said to them, **"Where the corpse is, there the vultures will gather."** 
 
 ***
 

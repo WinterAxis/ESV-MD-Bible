@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When you come into the land that the LORD your God is giving you for an inheritance and have taken possession of it and live in it, 
 
@@ -60,7 +59,7 @@ You have declared today that the LORD is your God, and that you will walk in his
 And the LORD has declared today that you are a people for his treasured possession, as he has promised you, and that you are to keep all his commandments, 
 
 ###### 19 
-and that he will set you in praise and in fame and in honor high above all nations that he has made, and that you shall be a people holy to the LORD your God, as he promised." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and that he will set you in praise and in fame and in honor high above all nations that he has made, and that you shall be a people holy to the LORD your God, as he promised." 
 
 ***
 

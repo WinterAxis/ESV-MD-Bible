@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I will give thanks to the LORD with my whole heart; I will recount all of your wonderful deeds. 
 
@@ -63,7 +62,7 @@ For the needy shall not always be forgotten, and the hope of the poor shall not 
 Arise, O LORD! Let not man prevail; let the nations be judged before you! 
 
 ###### 20 
-Put them in fear, O LORD! Let the nations know that they are but men! Selah ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Put them in fear, O LORD! Let the nations know that they are but men! Selah 
 
 ***
 

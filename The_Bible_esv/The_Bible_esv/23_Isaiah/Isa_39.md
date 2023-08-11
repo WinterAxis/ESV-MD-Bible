@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At that time Merodach-baladan the son of Baladan, king of Babylon, sent envoys with letters and a present to Hezekiah, for he heard that he had been sick and had recovered. 
 
@@ -27,7 +26,7 @@ Behold, the days are coming, when all that is in your house, and that which your
 And some of your own sons, who will come from you, whom you will father, shall be taken away, and they shall be eunuchs in the palace of the king of Babylon." 
 
 ###### 8 
-Then Hezekiah said to Isaiah, "The word of the LORD that you have spoken is good." For he thought, "There will be peace and security in my days." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Hezekiah said to Isaiah, "The word of the LORD that you have spoken is good." For he thought, "There will be peace and security in my days." 
 
 ***
 

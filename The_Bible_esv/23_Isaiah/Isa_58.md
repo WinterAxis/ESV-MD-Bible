@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Cry aloud; do not hold back; lift up your voice like a trumpet; declare to my people their transgression, to the house of Jacob their sins. 
 
@@ -45,7 +44,7 @@ And your ancient ruins shall be rebuilt; you shall raise up the foundations of m
 "If you turn back your foot from the Sabbath, from doing your pleasure on my holy day, and call the Sabbath a delight and the holy day of the LORD honorable; if you honor it, not going your own ways, or seeking your own pleasure, or talking idly; 
 
 ###### 14 
-then you shall take delight in the LORD, and I will make you ride on the heights of the earth; I will feed you with the heritage of Jacob your father, for the mouth of the LORD has spoken." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+then you shall take delight in the LORD, and I will make you ride on the heights of the earth; I will feed you with the heritage of Jacob your father, for the mouth of the LORD has spoken." 
 
 ***
 

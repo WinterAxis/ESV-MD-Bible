@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now these were the people of the province who came up out of the captivity of those exiles whom Nebuchadnezzar the king of Babylon had carried captive to Babylonia. They returned to Jerusalem and Judah, each to his own town. 
 
@@ -213,7 +212,7 @@ Some of the heads of families, when they came to the house of the LORD that is i
 According to their ability they gave to the treasury of the work 61,000 darics of gold, 5,000 minas of silver, and 100 priests' garments. 
 
 ###### 70 
-Now the priests, the Levites, some of the people, the singers, the gatekeepers, and the temple servants lived in their towns, and all the rest of Israel in their towns. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now the priests, the Levites, some of the people, the singers, the gatekeepers, and the temple servants lived in their towns, and all the rest of Israel in their towns. 
 
 ***
 

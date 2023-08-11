@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the fifth angel blew his trumpet, and I saw a star fallen from heaven to earth, and he was given the key to the shaft of the bottomless pit. 
 
@@ -66,7 +65,7 @@ For the power of the horses is in their mouths and in their tails, for their tai
 The rest of mankind, who were not killed by these plagues, did not repent of the works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood, which cannot see or hear or walk, 
 
 ###### 21 
-nor did they repent of their murders or their sorceries or their sexual immorality or their thefts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+nor did they repent of their murders or their sorceries or their sexual immorality or their thefts. 
 
 ***
 

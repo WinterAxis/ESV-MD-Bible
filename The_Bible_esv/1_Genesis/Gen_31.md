@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Jacob heard that the sons of Laban were saying, "Jacob has taken all that was our father's, and from what was our father's he has gained all this wealth." 
 
@@ -168,7 +167,7 @@ The God of Abraham and the God of Nahor, the God of their father, judge between 
 and Jacob offered a sacrifice in the hill country and called his kinsmen to eat bread. They ate bread and spent the night in the hill country. 
 
 ###### 55 
-Early in the morning Laban arose and kissed his grandchildren and his daughters and blessed them. Then Laban departed and returned home. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Early in the morning Laban arose and kissed his grandchildren and his daughters and blessed them. Then Laban departed and returned home. 
 
 ***
 

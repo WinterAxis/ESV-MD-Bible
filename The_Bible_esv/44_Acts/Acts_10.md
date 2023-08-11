@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At Caesarea there was a man named Cornelius, a centurion of what was known as the Italian Cohort, 
 
@@ -147,7 +146,7 @@ For they were hearing them speaking in tongues and extolling God. Then Peter dec
 "Can anyone withhold water for baptizing these people, who have received the Holy Spirit just as we have?" 
 
 ###### 48 
-And he commanded them to be baptized in the name of Jesus Christ. Then they asked him to remain for some days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he commanded them to be baptized in the name of Jesus Christ. Then they asked him to remain for some days. 
 
 ***
 

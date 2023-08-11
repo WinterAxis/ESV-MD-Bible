@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses in the plains of Moab by the Jordan at Jericho, saying, 
 
@@ -105,7 +104,7 @@ And you shall accept no ransom for him who has fled to his city of refuge, that 
 You shall not pollute the land in which you live, for blood pollutes the land, and no atonement can be made for the land for the blood that is shed in it, except by the blood of the one who shed it. 
 
 ###### 34 
-You shall not defile the land in which you live, in the midst of which I dwell, for I the LORD dwell in the midst of the people of Israel." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You shall not defile the land in which you live, in the midst of which I dwell, for I the LORD dwell in the midst of the people of Israel." 
 
 ***
 

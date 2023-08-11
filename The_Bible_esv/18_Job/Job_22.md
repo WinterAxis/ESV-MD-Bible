@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Eliphaz the Temanite answered and said: 
 
@@ -93,7 +92,7 @@ You will decide on a matter, and it will be established for you, and light will 
 For when they are humbled you say, 'It is because of pride'; but he saves the lowly. 
 
 ###### 30 
-He delivers even the one who is not innocent, who will be delivered through the cleanness of your hands." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He delivers even the one who is not innocent, who will be delivered through the cleanness of your hands." 
 
 ***
 

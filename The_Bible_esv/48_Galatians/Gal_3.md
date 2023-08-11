@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 O foolish Galatians! Who has bewitched you? It was before your eyes that Jesus Christ was publicly portrayed as crucified. 
 
@@ -90,7 +89,7 @@ For as many of you as were baptized into Christ have put on Christ.
 There is neither Jew nor Greek, there is neither slave nor free, there is no male and female, for you are all one in Christ Jesus. 
 
 ###### 29 
-And if you are Christ's, then you are Abraham's offspring, heirs according to promise. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And if you are Christ's, then you are Abraham's offspring, heirs according to promise. 
 
 ***
 

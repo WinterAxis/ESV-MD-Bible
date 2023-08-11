@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now in the twelfth month, which is the month of Adar, on the thirteenth day of the same, when the king's command and edict were about to be carried out, on the very day when the enemies of the Jews hoped to gain the mastery over them, the reverse occurred: the Jews gained mastery over those who hated them. 
 
@@ -99,7 +98,7 @@ Letters were sent to all the Jews, to the 127 provinces of the kingdom of Ahasue
 that these days of Purim should be observed at their appointed seasons, as Mordecai the Jew and Queen Esther obligated them, and as they had obligated themselves and their offspring, with regard to their fasts and their lamenting. 
 
 ###### 32 
-The command of Esther confirmed these practices of Purim, and it was recorded in writing. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The command of Esther confirmed these practices of Purim, and it was recorded in writing. 
 
 ***
 

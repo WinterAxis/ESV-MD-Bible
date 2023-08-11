@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When a man takes a wife and marries her, if then she finds no favor in his eyes because he has found some indecency in her, and he writes her a certificate of divorce and puts it in her hand and sends her out of his house, and she departs out of his house, 
 
@@ -69,7 +68,7 @@ When you beat your olive trees, you shall not go over them again. It shall be fo
 When you gather the grapes of your vineyard, you shall not strip it afterward. It shall be for the sojourner, the fatherless, and the widow. 
 
 ###### 22 
-You shall remember that you were a slave in the land of Egypt; therefore I command you to do this. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You shall remember that you were a slave in the land of Egypt; therefore I command you to do this. 
 
 ***
 

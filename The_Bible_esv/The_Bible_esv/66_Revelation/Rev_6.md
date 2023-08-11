@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now I watched when the Lamb opened one of the seven seals, and I heard one of the four living creatures say with a voice like thunder, "Come!" 
 
@@ -54,7 +53,7 @@ Then the kings of the earth and the great ones and the generals and the rich and
 calling to the mountains and rocks, "Fall on us and hide us from the face of him who is seated on the throne, and from the wrath of the Lamb, 
 
 ###### 17 
-for the great day of their wrath has come, and who can stand?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+for the great day of their wrath has come, and who can stand?" 
 
 ***
 

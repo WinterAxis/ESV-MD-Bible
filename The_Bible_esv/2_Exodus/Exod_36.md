@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Bezalel and Oholiab and every craftsman in whom the LORD has put skill and intelligence to know how to do any work in the construction of the sanctuary shall work in accordance with all that the LORD has commanded." 
 
@@ -117,7 +116,7 @@ And for it he made four pillars of acacia and overlaid them with gold. Their hoo
 He also made a screen for the entrance of the tent, of blue and purple and scarlet yarns and fine twined linen, embroidered with needlework, 
 
 ###### 38 
-and its five pillars with their hooks. He overlaid their capitals, and their fillets were of gold, but their five bases were of bronze. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and its five pillars with their hooks. He overlaid their capitals, and their fillets were of gold, but their five bases were of bronze. 
 
 ***
 

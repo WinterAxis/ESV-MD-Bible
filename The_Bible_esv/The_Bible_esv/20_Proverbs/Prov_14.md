@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The wisest of women builds her house, but folly with her own hands tears it down. 
 
@@ -108,7 +107,7 @@ Wisdom rests in the heart of a man of understanding, but it makes itself known e
 Righteousness exalts a nation, but sin is a reproach to any people. 
 
 ###### 35 
-A servant who deals wisely has the king's favor, but his wrath falls on one who acts shamefully. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+A servant who deals wisely has the king's favor, but his wrath falls on one who acts shamefully. 
 
 ***
 

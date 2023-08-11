@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jacob learned that there was grain for sale in Egypt, he said to his sons, "Why do you look at one another?" 
 
@@ -117,7 +116,7 @@ And Jacob their father said to them, "You have bereaved me of my children: Josep
 Then Reuben said to his father, "Kill my two sons if I do not bring him back to you. Put him in my hands, and I will bring him back to you." 
 
 ###### 38 
-But he said, "My son shall not go down with you, for his brother is dead, and he is the only one left. If harm should happen to him on the journey that you are to make, you would bring down my gray hairs with sorrow to Sheol." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But he said, "My son shall not go down with you, for his brother is dead, and he is the only one left. If harm should happen to him on the journey that you are to make, you would bring down my gray hairs with sorrow to Sheol." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Saul approved of his execution. And there arose on that day a great persecution against the church in Jerusalem, and they were all scattered throughout the regions of Judea and Samaria, except the apostles. 
 
@@ -120,7 +119,7 @@ And he commanded the chariot to stop, and they both went down into the water, Ph
 And when they came up out of the water, the Spirit of the Lord carried Philip away, and the eunuch saw him no more, and went on his way rejoicing. 
 
 ###### 40 
-But Philip found himself at Azotus, and as he passed through he preached the gospel to all the towns until he came to Caesarea. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But Philip found himself at Azotus, and as he passed through he preached the gospel to all the towns until he came to Caesarea. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then I looked, and behold, on Mount Zion stood the Lamb, and with him 144,000 who had his name and his Father's name written on their foreheads. 
 
@@ -63,7 +62,7 @@ And another angel came out from the altar, the angel who has authority over the 
 So the angel swung his sickle across the earth and gathered the grape harvest of the earth and threw it into the great winepress of the wrath of God. 
 
 ###### 20 
-And the winepress was trodden outside the city, and blood flowed from the winepress, as high as a horse's bridle, for 1,600 stadia. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the winepress was trodden outside the city, and blood flowed from the winepress, as high as a horse's bridle, for 1,600 stadia. 
 
 ***
 

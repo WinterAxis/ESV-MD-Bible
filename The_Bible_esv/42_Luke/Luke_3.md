@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the fifteenth year of the reign of Tiberius Caesar, Pontius Pilate being governor of Judea, and Herod being tetrarch of Galilee, and his brother Philip tetrarch of the region of Ituraea and Trachonitis, and Lysanias tetrarch of Abilene, 
 
@@ -117,7 +116,7 @@ the son of Cainan, the son of Arphaxad, the son of Shem, the son of Noah, the so
 the son of Methuselah, the son of Enoch, the son of Jared, the son of Mahalaleel, the son of Cainan, 
 
 ###### 38 
-the son of Enos, the son of Seth, the son of Adam, the son of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the son of Enos, the son of Seth, the son of Adam, the son of God. 
 
 ***
 

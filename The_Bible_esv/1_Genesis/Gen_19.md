@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. When Lot saw them, he rose to meet them and bowed himself with his face to the earth 
 
@@ -117,7 +116,7 @@ Thus both the daughters of Lot became pregnant by their father.
 The firstborn bore a son and called his name Moab. He is the father of the Moabites to this day. 
 
 ###### 38 
-The younger also bore a son and called his name Ben-ammi. He is the father of the Ammonites to this day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The younger also bore a son and called his name Ben-ammi. He is the father of the Ammonites to this day. 
 
 ***
 

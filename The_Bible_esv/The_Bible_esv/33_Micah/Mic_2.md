@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Woe to those who devise wickedness and work evil on their beds! When the morning dawns, they perform it, because it is in the power of their hand. 
 
@@ -42,7 +41,7 @@ If a man should go about and utter wind and lies, saying, "I will preach to you 
 I will surely assemble all of you, O Jacob; I will gather the remnant of Israel; I will set them together like sheep in a fold, like a flock in its pasture, a noisy multitude of men. 
 
 ###### 13 
-He who opens the breach goes up before them; they break through and pass the gate, going out by it. Their king passes on before them, the LORD at their head. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He who opens the breach goes up before them; they break through and pass the gate, going out by it. Their king passes on before them, the LORD at their head. 
 
 ***
 

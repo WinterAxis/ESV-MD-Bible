@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The allotment of the people of Joseph went from the Jordan by Jericho, east of the waters of Jericho, into the wilderness, going up from Jericho into the hill country to Bethel. 
 
@@ -33,7 +32,7 @@ From Tappuah the boundary goes westward to the brook Kanah and ends at the sea. 
 together with the towns that were set apart for the people of Ephraim within the inheritance of the Manassites, all those towns with their villages. 
 
 ###### 10 
-However, they did not drive out the Canaanites who lived in Gezer, so the Canaanites have lived in the midst of Ephraim to this day but have been made to do forced labor. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+However, they did not drive out the Canaanites who lived in Gezer, so the Canaanites have lived in the midst of Ephraim to this day but have been made to do forced labor. 
 
 ***
 

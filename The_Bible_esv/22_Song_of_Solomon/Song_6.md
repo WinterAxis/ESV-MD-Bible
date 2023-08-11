@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Where has your beloved gone, O most beautiful among women? Where has your beloved turned, that we may seek him with you? ## Together in the Garden of Love 
 
@@ -42,7 +41,7 @@ I went down to the nut orchard to look at the blossoms of the valley, to see whe
 Before I was aware, my desire set me among the chariots of my kinsman, a prince. 
 
 ###### 13 
-Return, return, O Shulammite, return, return, that we may look upon you. Why should you look upon the Shulammite, as upon a dance before two armies? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Return, return, O Shulammite, return, return, that we may look upon you. Why should you look upon the Shulammite, as upon a dance before two armies? 
 
 ***
 

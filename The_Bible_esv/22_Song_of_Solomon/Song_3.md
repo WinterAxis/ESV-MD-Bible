@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On my bed by night I sought him whom my soul loves; I sought him, but found him not. 
 
@@ -36,7 +35,7 @@ King Solomon made himself a carriage from the wood of Lebanon.
 He made its posts of silver, its back of gold, its seat of purple; its interior was inlaid with love by the daughters of Jerusalem. 
 
 ###### 11 
-Go out, O daughters of Zion, and look upon King Solomon, with the crown with which his mother crowned him on the day of his wedding, on the day of the gladness of his heart. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Go out, O daughters of Zion, and look upon King Solomon, with the crown with which his mother crowned him on the day of his wedding, on the day of the gladness of his heart. 
 
 ***
 

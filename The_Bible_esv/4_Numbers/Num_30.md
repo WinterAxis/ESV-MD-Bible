@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Moses spoke to the heads of the tribes of the people of Israel, saying, "This is what the LORD has commanded. 
 
@@ -51,7 +50,7 @@ But if her husband says nothing to her from day to day, then he establishes all 
 But if he makes them null and void after he has heard of them, then he shall bear her iniquity." 
 
 ###### 16 
-These are the statutes that the LORD commanded Moses about a man and his wife and about a father and his daughter while she is in her youth within her father's house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the statutes that the LORD commanded Moses about a man and his wife and about a father and his daughter while she is in her youth within her father's house. 
 
 ***
 

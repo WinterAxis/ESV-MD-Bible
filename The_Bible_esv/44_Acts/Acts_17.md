@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when they had passed through Amphipolis and Apollonia, they came to Thessalonica, where there was a synagogue of the Jews. 
 
@@ -105,7 +104,7 @@ Now when they heard of the resurrection of the dead, some mocked. But others sai
 So Paul went out from their midst. 
 
 ###### 34 
-But some men joined him and believed, among whom also were Dionysius the Areopagite and a woman named Damaris and others with them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But some men joined him and believed, among whom also were Dionysius the Areopagite and a woman named Damaris and others with them. 
 
 ***
 

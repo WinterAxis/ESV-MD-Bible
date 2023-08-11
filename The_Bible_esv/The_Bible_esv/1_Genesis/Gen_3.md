@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the serpent was more crafty than any other beast of the field that the LORD God had made. He said to the woman, "Did God actually say, 'You shall not eat of any tree in the garden'?" 
 
@@ -75,7 +74,7 @@ Then the LORD God said, "Behold, the man has become like one of us in knowing go
 therefore the LORD God sent him out from the garden of Eden to work the ground from which he was taken. 
 
 ###### 24 
-He drove out the man, and at the east of the garden of Eden he placed the cherubim and a flaming sword that turned every way to guard the way to the tree of life. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He drove out the man, and at the east of the garden of Eden he placed the cherubim and a flaming sword that turned every way to guard the way to the tree of life. 
 
 ***
 

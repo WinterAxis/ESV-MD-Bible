@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And it happened that while Apollos was at Corinth, Paul passed through the inland country and came to Ephesus. There he found some disciples. 
 
@@ -126,7 +125,7 @@ But if you seek anything further, it shall be settled in the regular assembly.
 For we really are in danger of being charged with rioting today, since there is no cause that we can give to justify this commotion." 
 
 ###### 41 
-And when he had said these things, he dismissed the assembly. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And when he had said these things, he dismissed the assembly. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Pilate took Jesus and flogged him. 
 
@@ -129,7 +128,7 @@ So they took the body of Jesus and bound it in linen cloths with the spices, as 
 Now in the place where he was crucified there was a garden, and in the garden a new tomb in which no one had yet been laid. 
 
 ###### 42 
-So because of the Jewish day of Preparation, since the tomb was close at hand, they laid Jesus there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So because of the Jewish day of Preparation, since the tomb was close at hand, they laid Jesus there. 
 
 ***
 

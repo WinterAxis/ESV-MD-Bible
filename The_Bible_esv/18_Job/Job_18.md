@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Bildad the Shuhite answered and said: 
 
@@ -66,7 +65,7 @@ He has no posterity or progeny among his people, and no survivor where he used t
 They of the west are appalled at his day, and horror seizes them of the east. 
 
 ###### 21 
-Surely such are the dwellings of the unrighteous, such is the place of him who knows not God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Surely such are the dwellings of the unrighteous, such is the place of him who knows not God." 
 
 ***
 

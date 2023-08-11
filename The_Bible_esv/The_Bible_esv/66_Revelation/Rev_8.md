@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the Lamb opened the seventh seal, there was silence in heaven for about half an hour. 
 
@@ -42,7 +41,7 @@ The name of the star is Wormwood. A third of the waters became wormwood, and man
 The fourth angel blew his trumpet, and a third of the sun was struck, and a third of the moon, and a third of the stars, so that a third of their light might be darkened, and a third of the day might be kept from shining, and likewise a third of the night. 
 
 ###### 13 
-Then I looked, and I heard an eagle crying with a loud voice as it flew directly overhead, "Woe, woe, woe to those who dwell on the earth, at the blasts of the other trumpets that the three angels are about to blow!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I looked, and I heard an eagle crying with a loud voice as it flew directly overhead, "Woe, woe, woe to those who dwell on the earth, at the blasts of the other trumpets that the three angels are about to blow!" 
 
 ***
 

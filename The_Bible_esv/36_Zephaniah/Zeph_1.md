@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Zephaniah the son of Cushi, son of Gedaliah, son of Amariah, son of Hezekiah, in the days of Josiah the son of Amon, king of Judah. ## The Coming Judgment on Judah 
 
@@ -57,7 +56,7 @@ a day of trumpet blast and battle cry against the fortified cities and against t
 I will bring distress on mankind, so that they shall walk like the blind, because they have sinned against the LORD; their blood shall be poured out like dust, and their flesh like dung. 
 
 ###### 18 
-Neither their silver nor their gold shall be able to deliver them on the day of the wrath of the LORD. In the fire of his jealousy, all the earth shall be consumed; for a full and sudden end he will make of all the inhabitants of the earth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Neither their silver nor their gold shall be able to deliver them on the day of the wrath of the LORD. In the fire of his jealousy, all the earth shall be consumed; for a full and sudden end he will make of all the inhabitants of the earth. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Who is like the wise? And who knows the interpretation of a thing? A man's wisdom makes his face shine, and the hardness of his face is changed. 
 
@@ -54,7 +53,7 @@ And I commend joy, for man has nothing better under the sun but to eat and drink
 When I applied my heart to know wisdom, and to see the business that is done on earth, how neither day nor night do one's eyes see sleep, 
 
 ###### 17 
-then I saw all the work of God, that man cannot find out the work that is done under the sun. However much man may toil in seeking, he will not find it out. Even though a wise man claims to know, he cannot find it out. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+then I saw all the work of God, that man cannot find out the work that is done under the sun. However much man may toil in seeking, he will not find it out. Even though a wise man claims to know, he cannot find it out. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After Abimelech there arose to save Israel Tola the son of Puah, son of Dodo, a man of Issachar, and he lived at Shamir in the hill country of Ephraim. 
 
@@ -57,7 +56,7 @@ So they put away the foreign gods from among them and served the LORD, and he be
 Then the Ammonites were called to arms, and they encamped in Gilead. And the people of Israel came together, and they encamped at Mizpah. 
 
 ###### 18 
-And the people, the leaders of Gilead, said one to another, "Who is the man who will begin to fight against the Ammonites? He shall be head over all the inhabitants of Gilead." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the people, the leaders of Gilead, said one to another, "Who is the man who will begin to fight against the Ammonites? He shall be head over all the inhabitants of Gilead." 
 
 ***
 

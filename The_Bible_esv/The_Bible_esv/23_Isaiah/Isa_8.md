@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to me, "Take a large tablet and write on it in common characters, 'Belonging to Maher-shalal-hash-baz.' 
 
@@ -69,7 +68,7 @@ To the teaching and to the testimony! If they will not speak according to this w
 They will pass through the land, greatly distressed and hungry. And when they are hungry, they will be enraged and will speak contemptuously against their king and their God, and turn their faces upward. 
 
 ###### 22 
-And they will look to the earth, but behold, distress and darkness, the gloom of anguish. And they will be thrust into thick darkness. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they will look to the earth, but behold, distress and darkness, the gloom of anguish. And they will be thrust into thick darkness. 
 
 ***
 

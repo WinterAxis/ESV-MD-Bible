@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Jacob called his sons and said, "Gather yourselves together, that I may tell you what shall happen to you in days to come. 
 
@@ -102,7 +101,7 @@ There they buried Abraham and Sarah his wife. There they buried Isaac and Rebeka
 the field and the cave that is in it were bought from the Hittites." 
 
 ###### 33 
-When Jacob finished commanding his sons, he drew up his feet into the bed and breathed his last and was gathered to his people. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+When Jacob finished commanding his sons, he drew up his feet into the bed and breathed his last and was gathered to his people. 
 
 ***
 

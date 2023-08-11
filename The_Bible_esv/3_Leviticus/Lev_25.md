@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses on Mount Sinai, saying, 
 
@@ -168,7 +167,7 @@ He shall treat him as a worker hired year by year. He shall not rule ruthlessly 
 And if he is not redeemed by these means, then he and his children with him shall be released in the year of jubilee. 
 
 ###### 55 
-For it is to me that the people of Israel are servants. They are my servants whom I brought out of the land of Egypt: I am the LORD your God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For it is to me that the people of Israel are servants. They are my servants whom I brought out of the land of Egypt: I am the LORD your God. 
 
 ***
 

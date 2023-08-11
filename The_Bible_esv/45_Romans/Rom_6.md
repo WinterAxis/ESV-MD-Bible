@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 What shall we say then? Are we to continue in sin that grace may abound? 
 
@@ -72,7 +71,7 @@ But what fruit were you getting at that time from the things of which you are no
 But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. 
 
 ###### 23 
-For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Elihu answered and said: 
 
@@ -114,7 +113,7 @@ Men of understanding will say to me, and the wise man who hears me will say:
 Would that Job were tried to the end, because he answers like wicked men. 
 
 ###### 37 
-For he adds rebellion to his sin; he claps his hands among us and multiplies his words against God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For he adds rebellion to his sin; he claps his hands among us and multiplies his words against God." 
 
 ***
 

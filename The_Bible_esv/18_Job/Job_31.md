@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "I have made a covenant with my eyes; how then could I gaze at a virgin? 
 
@@ -123,7 +122,7 @@ I would give him an account of all my steps; like a prince I would approach him.
 if I have eaten its yield without payment and made its owners breathe their last, 
 
 ###### 40 
-let thorns grow instead of wheat, and foul weeds instead of barley." The words of Job are ended. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+let thorns grow instead of wheat, and foul weeds instead of barley." The words of Job are ended. 
 
 ***
 

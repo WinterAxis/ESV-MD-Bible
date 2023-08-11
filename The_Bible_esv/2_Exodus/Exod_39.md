@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 From the blue and purple and scarlet yarns they made finely woven garments, for ministering in the Holy Place. They made the holy garments for Aaron, as the LORD had commanded Moses. 
 
@@ -132,7 +131,7 @@ the finely worked garments for ministering in the Holy Place, the holy garments 
 According to all that the LORD had commanded Moses, so the people of Israel had done all the work. 
 
 ###### 43 
-And Moses saw all the work, and behold, they had done it; as the LORD had commanded, so had they done it. Then Moses blessed them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Moses saw all the work, and behold, they had done it; as the LORD had commanded, so had they done it. Then Moses blessed them. 
 
 ***
 

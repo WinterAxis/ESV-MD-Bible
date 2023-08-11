@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "On the seals are the names of Nehemiah the governor, the son of Hacaliah, Zedekiah, 
 
@@ -120,7 +119,7 @@ and to bring the first of our dough, and our contributions, the fruit of every t
 And the priest, the son of Aaron, shall be with the Levites when the Levites receive the tithes. And the Levites shall bring up the tithe of the tithes to the house of our God, to the chambers of the storehouse. 
 
 ###### 39 
-For the people of Israel and the sons of Levi shall bring the contribution of grain, wine, and oil to the chambers, where the vessels of the sanctuary are, as well as the priests who minister, and the gatekeepers and the singers. We will not neglect the house of our God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the people of Israel and the sons of Levi shall bring the contribution of grain, wine, and oil to the chambers, where the vessels of the sanctuary are, as well as the priests who minister, and the gatekeepers and the singers. We will not neglect the house of our God." 
 
 ***
 

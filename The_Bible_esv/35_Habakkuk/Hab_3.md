@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 A prayer of Habakkuk the prophet, according to Shigionoth. 
 
@@ -60,7 +59,7 @@ Though the fig tree should not blossom, nor fruit be on the vines, the produce o
 yet I will rejoice in the LORD; I will take joy in the God of my salvation. 
 
 ###### 19 
-God, the Lord, is my strength; he makes my feet like the deer's; he makes me tread on my high places. To the choirmaster: with stringed instruments. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+God, the Lord, is my strength; he makes my feet like the deer's; he makes me tread on my high places. To the choirmaster: with stringed instruments. 
 
 ***
 

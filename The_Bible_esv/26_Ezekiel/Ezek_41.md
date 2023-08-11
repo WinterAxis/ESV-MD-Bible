@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he brought me to the nave and measured the jambs. On each side six cubits was the breadth of the jambs. 
 
@@ -81,7 +80,7 @@ The double doors had two leaves apiece, two swinging leaves for each door.
 And on the doors of the nave were carved cherubim and palm trees, such as were carved on the walls. And there was a canopy of wood in front of the vestibule outside. 
 
 ###### 26 
-And there were narrow windows and palm trees on either side, on the sidewalls of the vestibule, the side chambers of the temple, and the canopies. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And there were narrow windows and palm trees on either side, on the sidewalls of the vestibule, the side chambers of the temple, and the canopies. 
 
 ***
 

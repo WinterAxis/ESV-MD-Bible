@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And you, son of man, take a brick and lay it before you, and engrave on it a city, even Jerusalem. 
 
@@ -54,7 +53,7 @@ Then he said to me, "See, I assign to you cow's dung instead of human dung, on w
 Moreover, he said to me, "Son of man, behold, I will break the supply of bread in Jerusalem. They shall eat bread by weight and with anxiety, and they shall drink water by measure and in dismay. 
 
 ###### 17 
-I will do this that they may lack bread and water, and look at one another in dismay, and rot away because of their punishment. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will do this that they may lack bread and water, and look at one another in dismay, and rot away because of their punishment. 
 
 ***
 

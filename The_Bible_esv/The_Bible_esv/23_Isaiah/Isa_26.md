@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In that day this song will be sung in the land of Judah: "We have a strong city; he sets up salvation as walls and bulwarks. 
 
@@ -66,7 +65,7 @@ Your dead shall live; their bodies shall rise. You who dwell in the dust, awake 
 Come, my people, enter your chambers, and shut your doors behind you; hide yourselves for a little while until the fury has passed by. 
 
 ###### 21 
-For behold, the LORD is coming out from his place to punish the inhabitants of the earth for their iniquity, and the earth will disclose the blood shed on it, and will no more cover its slain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For behold, the LORD is coming out from his place to punish the inhabitants of the earth for their iniquity, and the earth will disclose the blood shed on it, and will no more cover its slain. 
 
 ***
 

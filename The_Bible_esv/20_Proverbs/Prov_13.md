@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 A wise son hears his father's instruction, but a scoffer does not listen to rebuke. 
 
@@ -78,7 +77,7 @@ The fallow ground of the poor would yield much food, but it is swept away throug
 Whoever spares the rod hates his son, but he who loves him is diligent to discipline him. 
 
 ###### 25 
-The righteous has enough to satisfy his appetite, but the belly of the wicked suffers want. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The righteous has enough to satisfy his appetite, but the belly of the wicked suffers want. 
 
 ***
 

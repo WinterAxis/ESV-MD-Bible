@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as Solomon had finished building the house of the LORD and the king's house and all that Solomon desired to build, 
 
@@ -87,7 +86,7 @@ King Solomon built a fleet of ships at Ezion-geber, which is near Eloth on the s
 And Hiram sent with the fleet his servants, seamen who were familiar with the sea, together with the servants of Solomon. 
 
 ###### 28 
-And they went to Ophir and brought from there gold, 420 talents, and they brought it to King Solomon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they went to Ophir and brought from there gold, 420 talents, and they brought it to King Solomon. 
 
 ***
 

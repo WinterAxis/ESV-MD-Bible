@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the stages of the people of Israel, when they went out of the land of Egypt by their companies under the leadership of Moses and Aaron. 
 
@@ -171,7 +170,7 @@ You shall inherit the land by lot according to your clans. To a large tribe you 
 But if you do not drive out the inhabitants of the land from before you, then those of them whom you let remain shall be as barbs in your eyes and thorns in your sides, and they shall trouble you in the land where you dwell. 
 
 ###### 56 
-And I will do to you as I thought to do to them." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will do to you as I thought to do to them." 
 
 ***
 

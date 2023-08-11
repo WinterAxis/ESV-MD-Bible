@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Sarah lived 127 years; these were the years of the life of Sarah. 
 
@@ -63,7 +62,7 @@ to Abraham as a possession in the presence of the Hittites, before all who went 
 After this, Abraham buried Sarah his wife in the cave of the field of Machpelah east of Mamre (that is, Hebron) in the land of Canaan. 
 
 ###### 20 
-The field and the cave that is in it were made over to Abraham as property for a burying place by the Hittites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The field and the cave that is in it were made over to Abraham as property for a burying place by the Hittites. 
 
 ***
 

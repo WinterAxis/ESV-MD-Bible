@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the word of the LORD came to me, saying, 
 
@@ -96,7 +95,7 @@ The people of the land have practiced extortion and committed robbery. They have
 And I sought for a man among them who should build up the wall and stand in the breach before me for the land, that I should not destroy it, but I found none. 
 
 ###### 31 
-Therefore I have poured out my indignation upon them. I have consumed them with the fire of my wrath. I have returned their way upon their heads, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore I have poured out my indignation upon them. I have consumed them with the fire of my wrath. I have returned their way upon their heads, declares the Lord God." 
 
 ***
 

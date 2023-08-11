@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There is therefore now no condemnation for those who are in Christ Jesus. 
 
@@ -120,7 +119,7 @@ No, in all these things we are more than conquerors through him who loved us.
 For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, 
 
 ###### 39 
-nor height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ Jesus our Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+nor height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ Jesus our Lord. 
 
 ***
 

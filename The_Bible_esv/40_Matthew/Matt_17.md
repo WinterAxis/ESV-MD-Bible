@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And after six days Jesus took with him Peter and James, and John his brother, and led them up a high mountain by themselves. 
 
@@ -81,7 +80,7 @@ He said, "Yes." And when he came into the house, Jesus spoke to him first, sayin
 And when he said, "From others," Jesus said to him, **"Then the sons are free.** 
 
 ###### 27 
-However, not to give offense to them, go to the sea and cast a hook and take the first fish that comes up, and when you open its mouth you will find a shekel. Take that and give it to them for me and for yourself." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+However, not to give offense to them, go to the sea and cast a hook and take the first fish that comes up, and when you open its mouth you will find a shekel. Take that and give it to them for me and for yourself." 
 
 ***
 

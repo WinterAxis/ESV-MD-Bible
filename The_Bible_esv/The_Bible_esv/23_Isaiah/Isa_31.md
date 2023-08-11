@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Woe to those who go down to Egypt for help and rely on horses, who trust in chariots because they are many and in horsemen because they are very strong, but do not look to the Holy One of Israel or consult the LORD! 
 
@@ -30,7 +29,7 @@ For in that day everyone shall cast away his idols of silver and his idols of go
 "And the Assyrian shall fall by a sword, not of man; and a sword, not of man, shall devour him; and he shall flee from the sword, and his young men shall be put to forced labor. 
 
 ###### 9 
-His rock shall pass away in terror, and his officers desert the standard in panic," declares the LORD, whose fire is in Zion, and whose furnace is in Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+His rock shall pass away in terror, and his officers desert the standard in panic," declares the LORD, whose fire is in Zion, and whose furnace is in Jerusalem. 
 
 ***
 

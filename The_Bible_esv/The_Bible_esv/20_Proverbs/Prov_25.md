@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These also are proverbs of Solomon which the men of Hezekiah king of Judah copied. 
 
@@ -87,7 +86,7 @@ Like a muddied spring or a polluted fountain is a righteous man who gives way be
 It is not good to eat much honey, nor is it glorious to seek one's own glory. 
 
 ###### 28 
-A man without self-control is like a city broken into and left without walls. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+A man without self-control is like a city broken into and left without walls. 
 
 ***
 

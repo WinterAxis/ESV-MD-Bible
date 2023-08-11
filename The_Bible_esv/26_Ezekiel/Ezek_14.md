@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then certain of the elders of Israel came to me and sat before me. 
 
@@ -72,7 +71,7 @@ even if Noah, Daniel, and Job were in it, as I live, declares the Lord God, they
 But behold, some survivors will be left in it, sons and daughters who will be brought out; behold, when they come out to you, and you see their ways and their deeds, you will be consoled for the disaster that I have brought upon Jerusalem, for all that I have brought upon it. 
 
 ###### 23 
-They will console you, when you see their ways and their deeds, and you shall know that I have not done without cause all that I have done in it, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They will console you, when you see their ways and their deeds, and you shall know that I have not done without cause all that I have done in it, declares the Lord God." 
 
 ***
 

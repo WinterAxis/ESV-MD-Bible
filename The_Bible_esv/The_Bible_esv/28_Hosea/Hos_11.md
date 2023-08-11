@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Israel was a child, I loved him, and out of Egypt I called my son. 
 
@@ -39,7 +38,7 @@ They shall go after the LORD; he will roar like a lion; when he roars, his child
 they shall come trembling like birds from Egypt, and like doves from the land of Assyria, and I will return them to their homes, declares the LORD. 
 
 ###### 12 
-Ephraim has surrounded me with lies, and the house of Israel with deceit, but Judah still walks with God and is faithful to the Holy One. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Ephraim has surrounded me with lies, and the house of Israel with deceit, but Judah still walks with God and is faithful to the Holy One. 
 
 ***
 

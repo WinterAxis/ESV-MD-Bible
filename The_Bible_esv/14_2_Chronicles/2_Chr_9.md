@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the queen of Sheba heard of the fame of Solomon, she came to Jerusalem to test him with hard questions, having a very great retinue and camels bearing spices and very much gold and precious stones. And when she came to Solomon, she told him all that was on her mind. 
 
@@ -96,7 +95,7 @@ Now the rest of the acts of Solomon, from first to last, are they not written in
 Solomon reigned in Jerusalem over all Israel forty years. 
 
 ###### 31 
-And Solomon slept with his fathers and was buried in the city of David his father, and Rehoboam his son reigned in his place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Solomon slept with his fathers and was buried in the city of David his father, and Rehoboam his son reigned in his place. 
 
 ***
 

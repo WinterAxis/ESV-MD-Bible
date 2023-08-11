@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In that day the LORD with his hard and great and strong sword will punish Leviathan the fleeing serpent, Leviathan the twisting serpent, and he will slay the dragon that is in the sea. 
 
@@ -42,7 +41,7 @@ When its boughs are dry, they are broken; women come and make a fire of them. Fo
 In that day from the river Euphrates to the Brook of Egypt the LORD will thresh out the grain, and you will be gleaned one by one, O people of Israel. 
 
 ###### 13 
-And in that day a great trumpet will be blown, and those who were lost in the land of Assyria and those who were driven out to the land of Egypt will come and worship the LORD on the holy mountain at Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And in that day a great trumpet will be blown, and those who were lost in the land of Assyria and those who were driven out to the land of Egypt will come and worship the LORD on the holy mountain at Jerusalem. 
 
 ***
 

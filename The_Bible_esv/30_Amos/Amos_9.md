@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I saw the Lord standing beside the altar, and he said: "Strike the capitals until the thresholds shake, and shatter them on the heads of all the people; and those who are left of them I will kill with the sword; not one of them shall flee away; not one of them shall escape. 
 
@@ -48,7 +47,7 @@ that they may possess the remnant of Edom and all the nations who are called by 
 I will restore the fortunes of my people Israel, and they shall rebuild the ruined cities and inhabit them; they shall plant vineyards and drink their wine, and they shall make gardens and eat their fruit. 
 
 ###### 15 
-I will plant them on their land, and they shall never again be uprooted out of the land that I have given them," says the LORD your God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will plant them on their land, and they shall never again be uprooted out of the land that I have given them," says the LORD your God. 
 
 ***
 

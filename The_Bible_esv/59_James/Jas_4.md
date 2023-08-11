@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 What causes quarrels and what causes fights among you? Is it not this, that your passions are at war within you? 
 
@@ -54,7 +53,7 @@ Instead you ought to say, "If the Lord wills, we will live and do this or that."
 As it is, you boast in your arrogance. All such boasting is evil. 
 
 ###### 17 
-So whoever knows the right thing to do and fails to do it, for him it is sin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So whoever knows the right thing to do and fails to do it, for him it is sin. 
 
 ***
 

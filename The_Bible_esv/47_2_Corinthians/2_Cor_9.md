@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now it is superfluous for me to write to you about the ministry for the saints, 
 
@@ -48,7 +47,7 @@ By their approval of this service, they will glorify God because of your submiss
 while they long for you and pray for you, because of the surpassing grace of God upon you. 
 
 ###### 15 
-Thanks be to God for his inexpressible gift! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thanks be to God for his inexpressible gift! 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now muster your troops, O daughter of troops; siege is laid against us; with a rod they strike the judge of Israel on the cheek. 
 
@@ -48,7 +47,7 @@ and I will cut off your carved images and your pillars from among you, and you s
 and I will root out your Asherah images from among you and destroy your cities. 
 
 ###### 15 
-And in anger and wrath I will execute vengeance on the nations that did not obey. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And in anger and wrath I will execute vengeance on the nations that did not obey. 
 
 ***
 

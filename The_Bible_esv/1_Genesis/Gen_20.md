@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 From there Abraham journeyed toward the territory of the Negeb and lived between Kadesh and Shur; and he sojourned in Gerar. 
 
@@ -57,7 +56,7 @@ To Sarah he said, "Behold, I have given your brother a thousand pieces of silver
 Then Abraham prayed to God, and God healed Abimelech, and also healed his wife and female slaves so that they bore children. 
 
 ###### 18 
-For the LORD had closed all the wombs of the house of Abimelech because of Sarah, Abraham's wife. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the LORD had closed all the wombs of the house of Abimelech because of Sarah, Abraham's wife. 
 
 ***
 

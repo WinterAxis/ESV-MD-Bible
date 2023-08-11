@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Set the trumpet to your lips! One like a vulture is over the house of the LORD, because they have transgressed my covenant and rebelled against my law. 
 
@@ -45,7 +44,7 @@ Were I to write for him my laws by the ten thousands, they would be regarded as 
 As for my sacrificial offerings, they sacrifice meat and eat it, but the LORD does not accept them. Now he will remember their iniquity and punish their sins; they shall return to Egypt. 
 
 ###### 14 
-For Israel has forgotten his Maker and built palaces, and Judah has multiplied fortified cities; so I will send a fire upon his cities, and it shall devour her strongholds. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For Israel has forgotten his Maker and built palaces, and Judah has multiplied fortified cities; so I will send a fire upon his cities, and it shall devour her strongholds. 
 
 ***
 

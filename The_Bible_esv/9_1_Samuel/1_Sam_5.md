@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the Philistines captured the ark of God, they brought it from Ebenezer to Ashdod. 
 
@@ -39,7 +38,7 @@ So they sent the ark of God to Ekron. But as soon as the ark of God came to Ekro
 They sent therefore and gathered together all the lords of the Philistines and said, "Send away the ark of the God of Israel, and let it return to its own place, that it may not kill us and our people." For there was a deathly panic throughout the whole city. The hand of God was very heavy there. 
 
 ###### 12 
-The men who did not die were struck with tumors, and the cry of the city went up to heaven. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The men who did not die were struck with tumors, and the cry of the city went up to heaven. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Darius the king made a decree, and search was made in Babylonia, in the house of the archives where the documents were stored. 
 
@@ -69,7 +68,7 @@ For the priests and the Levites had purified themselves together; all of them we
 It was eaten by the people of Israel who had returned from exile, and also by every one who had joined them and separated himself from the uncleanness of the peoples of the land to worship the LORD, the God of Israel. 
 
 ###### 22 
-And they kept the Feast of Unleavened Bread seven days with joy, for the LORD had made them joyful and had turned the heart of the king of Assyria to them, so that he aided them in the work of the house of God, the God of Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they kept the Feast of Unleavened Bread seven days with joy, for the LORD had made them joyful and had turned the heart of the king of Assyria to them, so that he aided them in the work of the house of God, the God of Israel. 
 
 ***
 

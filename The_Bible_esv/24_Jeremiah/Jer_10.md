@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear the word that the LORD speaks to you, O house of Israel. 
 
@@ -78,7 +77,7 @@ I know, O LORD, that the way of man is not in himself, that it is not in man who
 Correct me, O LORD, but in justice; not in your anger, lest you bring me to nothing. 
 
 ###### 25 
-Pour out your wrath on the nations that know you not, and on the peoples that call not on your name, for they have devoured Jacob; they have devoured him and consumed him, and have laid waste his habitation. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Pour out your wrath on the nations that know you not, and on the peoples that call not on your name, for they have devoured Jacob; they have devoured him and consumed him, and have laid waste his habitation. 
 
 ***
 

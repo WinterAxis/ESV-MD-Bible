@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Concerning Moab. Thus says the LORD of hosts, the God of Israel: "Woe to Nebo, for it is laid waste! Kiriathaim is put to shame, it is taken; the fortress is put to shame and broken down; 
 
@@ -144,7 +143,7 @@ He who flees from the terror shall fall into the pit, and he who climbs out of t
 Woe to you, O Moab! The people of Chemosh are undone, for your sons have been taken captive, and your daughters into captivity. 
 
 ###### 47 
-Yet I will restore the fortunes of Moab in the latter days, declares the LORD." Thus far is the judgment on Moab. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet I will restore the fortunes of Moab in the latter days, declares the LORD." Thus far is the judgment on Moab. 
 
 ***
 

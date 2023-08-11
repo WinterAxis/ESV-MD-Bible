@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Ask rain from the LORD in the season of the spring rain, from the LORD who makes the storm clouds, and he will give them showers of rain, to everyone the vegetation in the field. 
 
@@ -39,7 +38,7 @@ I will bring them home from the land of Egypt, and gather them from Assyria, and
 He shall pass through the sea of troubles and strike down the waves of the sea, and all the depths of the Nile shall be dried up. The pride of Assyria shall be laid low, and the scepter of Egypt shall depart. 
 
 ###### 12 
-I will make them strong in the LORD, and they shall walk in his name," declares the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will make them strong in the LORD, and they shall walk in his name," declares the LORD. 
 
 ***
 

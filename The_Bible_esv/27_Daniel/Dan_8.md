@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the third year of the reign of King Belshazzar a vision appeared to me, Daniel, after that which appeared to me at the first. 
 
@@ -84,7 +83,7 @@ By his cunning he shall make deceit prosper under his hand, and in his own mind 
 The vision of the evenings and the mornings that has been told is true, but seal up the vision, for it refers to many days from now." 
 
 ###### 27 
-And I, Daniel, was overcome and lay sick for some days. Then I rose and went about the king's business, but I was appalled by the vision and did not understand it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I, Daniel, was overcome and lay sick for some days. Then I rose and went about the king's business, but I was appalled by the vision and did not understand it. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Listen to me, you who pursue righteousness, you who seek the LORD: look to the rock from which you were hewn, and to the quarry from which you were dug. 
 
@@ -72,7 +71,7 @@ Therefore hear this, you who are afflicted, who are drunk, but not with wine:
 Thus says your Lord, the LORD, your God who pleads the cause of his people: "Behold, I have taken from your hand the cup of staggering; the bowl of my wrath you shall drink no more; 
 
 ###### 23 
-and I will put it into the hand of your tormentors, who have said to you, 'Bow down, that we may pass over'; and you have made your back like the ground and like the street for them to pass over." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and I will put it into the hand of your tormentors, who have said to you, 'Bow down, that we may pass over'; and you have made your back like the ground and like the street for them to pass over." 
 
 ***
 

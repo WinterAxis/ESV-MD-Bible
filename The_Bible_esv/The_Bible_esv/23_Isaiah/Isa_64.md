@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Oh that you would rend the heavens and come down, that the mountains might quake at your presence-- 
 
@@ -39,7 +38,7 @@ Your holy cities have become a wilderness; Zion has become a wilderness, Jerusal
 Our holy and beautiful house, where our fathers praised you, has been burned by fire, and all our pleasant places have become ruins. 
 
 ###### 12 
-Will you restrain yourself at these things, O LORD? Will you keep silent, and afflict us so terribly? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Will you restrain yourself at these things, O LORD? Will you keep silent, and afflict us so terribly? 
 
 ***
 

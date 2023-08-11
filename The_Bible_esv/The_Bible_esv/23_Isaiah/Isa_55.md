@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Come, everyone who thirsts, come to the waters; and he who has no money, come, buy and eat! Come, buy wine and milk without money and without price. 
 
@@ -42,7 +41,7 @@ so shall my word be that goes out from my mouth; it shall not return to me empty
 "For you shall go out in joy and be led forth in peace; the mountains and the hills before you shall break forth into singing, and all the trees of the field shall clap their hands. 
 
 ###### 13 
-Instead of the thorn shall come up the cypress; instead of the brier shall come up the myrtle; and it shall make a name for the LORD, an everlasting sign that shall not be cut off." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Instead of the thorn shall come up the cypress; instead of the brier shall come up the myrtle; and it shall make a name for the LORD, an everlasting sign that shall not be cut off." 
 
 ***
 

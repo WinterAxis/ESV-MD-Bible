@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore when we could bear it no longer, we were willing to be left behind at Athens alone, 
 
@@ -42,7 +41,7 @@ Now may our God and Father himself, and our Lord Jesus, direct our way to you,
 and may the Lord make you increase and abound in love for one another and for all, as we do for you, 
 
 ###### 13 
-so that he may establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all his saints. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that he may establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all his saints. 
 
 ***
 

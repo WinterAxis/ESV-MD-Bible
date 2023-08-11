@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Hear, O Israel: you are to cross over the Jordan today, to go in to dispossess nations greater and mightier than you, cities great and fortified up to heaven, 
 
@@ -90,7 +89,7 @@ Remember your servants, Abraham, Isaac, and Jacob. Do not regard the stubbornnes
 lest the land from which you brought us say, "Because the LORD was not able to bring them into the land that he promised them, and because he hated them, he has brought them out to put them to death in the wilderness." 
 
 ###### 29 
-For they are your people and your heritage, whom you brought out by your great power and by your outstretched arm.' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For they are your people and your heritage, whom you brought out by your great power and by your outstretched arm.' 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the twenty-fifth year of our exile, at the beginning of the year, on the tenth day of the month, in the fourteenth year after the city was struck down, on that very day, the hand of the LORD was upon me, and he brought me to the city. 
 
@@ -150,7 +149,7 @@ And he measured the court, a hundred cubits long and a hundred cubits broad, a s
 Then he brought me to the vestibule of the temple and measured the jambs of the vestibule, five cubits on either side. And the breadth of the gate was fourteen cubits, and the sidewalls of the gate were three cubits on either side. 
 
 ###### 49 
-The length of the vestibule was twenty cubits, and the breadth twelve cubits, and people would go up to it by ten steps. And there were pillars beside the jambs, one on either side. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The length of the vestibule was twenty cubits, and the breadth twelve cubits, and people would go up to it by ten steps. And there were pillars beside the jambs, one on either side. 
 
 ***
 

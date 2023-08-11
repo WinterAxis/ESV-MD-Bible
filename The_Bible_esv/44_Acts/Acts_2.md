@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the day of Pentecost arrived, they were all together in one place. 
 
@@ -144,7 +143,7 @@ And they were selling their possessions and belongings and distributing the proc
 And day by day, attending the temple together and breaking bread in their homes, they received their food with glad and generous hearts, 
 
 ###### 47 
-praising God and having favor with all the people. And the Lord added to their number day by day those who were being saved. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+praising God and having favor with all the people. And the Lord added to their number day by day those who were being saved. 
 
 ***
 

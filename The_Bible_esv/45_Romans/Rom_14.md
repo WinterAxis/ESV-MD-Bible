@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As for the one who is weak in faith, welcome him, but not to quarrel over opinions. 
 
@@ -72,7 +71,7 @@ It is good not to eat meat or drink wine or do anything that causes your brother
 The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. 
 
 ###### 23 
-But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. 
 
 ***
 

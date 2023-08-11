@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 We want you to know, brothers, about the grace of God that has been given among the churches of Macedonia, 
 
@@ -75,7 +74,7 @@ And with them we are sending our brother whom we have often tested and found ear
 As for Titus, he is my partner and fellow worker for your benefit. And as for our brothers, they are messengers of the churches, the glory of Christ. 
 
 ###### 24 
-So give proof before the churches of your love and of our boasting about you to these men. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So give proof before the churches of your love and of our boasting about you to these men. 
 
 ***
 

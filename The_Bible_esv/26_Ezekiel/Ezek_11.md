@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The Spirit lifted me up and brought me to the east gate of the house of the LORD, which faces east. And behold, at the entrance of the gateway there were twenty-five men. And I saw among them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people. 
 
@@ -78,7 +77,7 @@ And the glory of the LORD went up from the midst of the city and stood on the mo
 And the Spirit lifted me up and brought me in the vision by the Spirit of God into Chaldea, to the exiles. Then the vision that I had seen went up from me. 
 
 ###### 25 
-And I told the exiles all the things that the LORD had shown me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I told the exiles all the things that the LORD had shown me. 
 
 ***
 

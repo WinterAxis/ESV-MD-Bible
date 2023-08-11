@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear what the LORD says: Arise, plead your case before the mountains, and let the hills hear your voice. 
 
@@ -51,7 +50,7 @@ You shall eat, but not be satisfied, and there shall be hunger within you; you s
 You shall sow, but not reap; you shall tread olives, but not anoint yourselves with oil; you shall tread grapes, but not drink wine. 
 
 ###### 16 
-For you have kept the statutes of Omri, and all the works of the house of Ahab; and you have walked in their counsels, that I may make you a desolation, and your inhabitants a hissing; so you shall bear the scorn of my people." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For you have kept the statutes of Omri, and all the works of the house of Ahab; and you have walked in their counsels, that I may make you a desolation, and your inhabitants a hissing; so you shall bear the scorn of my people." 
 
 ***
 

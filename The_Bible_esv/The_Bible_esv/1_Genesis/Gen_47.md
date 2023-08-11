@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So Joseph went in and told Pharaoh, "My father and my brothers, with their flocks and herds and all that they possess, have come from the land of Canaan. They are now in the land of Goshen." 
 
@@ -96,7 +95,7 @@ And when the time drew near that Israel must die, he called his son Joseph and s
 but let me lie with my fathers. Carry me out of Egypt and bury me in their burying place." He answered, "I will do as you have said." 
 
 ###### 31 
-And he said, "Swear to me"; and he swore to him. Then Israel bowed himself upon the head of his bed. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he said, "Swear to me"; and he swore to him. Then Israel bowed himself upon the head of his bed. 
 
 ***
 

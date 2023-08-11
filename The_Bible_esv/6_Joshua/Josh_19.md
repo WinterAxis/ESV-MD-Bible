@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The second lot came out for Simeon, for the tribe of the people of Simeon, according to their clans, and their inheritance was in the midst of the inheritance of the people of Judah. 
 
@@ -156,7 +155,7 @@ When they had finished distributing the several territories of the land as inher
 By command of the LORD they gave him the city that he asked, Timnath-serah in the hill country of Ephraim. And he rebuilt the city and settled in it. 
 
 ###### 51 
-These are the inheritances that Eleazar the priest and Joshua the son of Nun and the heads of the fathers' houses of the tribes of the people of Israel distributed by lot at Shiloh before the LORD, at the entrance of the tent of meeting. So they finished dividing the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the inheritances that Eleazar the priest and Joshua the son of Nun and the heads of the fathers' houses of the tribes of the people of Israel distributed by lot at Shiloh before the LORD, at the entrance of the tent of meeting. So they finished dividing the land. 
 
 ***
 

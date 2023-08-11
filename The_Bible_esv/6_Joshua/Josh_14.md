@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the inheritances that the people of Israel received in the land of Canaan, which Eleazar the priest and Joshua the son of Nun and the heads of the fathers' houses of the tribes of the people of Israel gave them to inherit. 
 
@@ -48,7 +47,7 @@ Then Joshua blessed him, and he gave Hebron to Caleb the son of Jephunneh for an
 Therefore Hebron became the inheritance of Caleb the son of Jephunneh the Kenizzite to this day, because he wholly followed the LORD, the God of Israel. 
 
 ###### 15 
-Now the name of Hebron formerly was Kiriath-arba. (Arba was the greatest man among the Anakim.) And the land had rest from war. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now the name of Hebron formerly was Kiriath-arba. (Arba was the greatest man among the Anakim.) And the land had rest from war. 
 
 ***
 

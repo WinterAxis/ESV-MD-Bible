@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And as he came out of the temple, one of his disciples said to him, "Look, Teacher, what wonderful stones and what wonderful buildings!" 
 
@@ -114,7 +113,7 @@ Therefore stay awake--for you do not know when the master of the house will come
 lest he come suddenly and find you asleep. 
 
 ###### 37 
-And what I say to you I say to all: Stay awake." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And what I say to you I say to all: Stay awake." 
 
 ***
 

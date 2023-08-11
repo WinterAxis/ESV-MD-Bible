@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle of the word of the LORD concerning Israel: Thus declares the LORD, who stretched out the heavens and founded the earth and formed the spirit of man within him: 
 
@@ -45,7 +44,7 @@ The land shall mourn, each family by itself: the family of the house of David by
 the family of the house of Levi by itself, and their wives by themselves; the family of the Shimeites by itself, and their wives by themselves; 
 
 ###### 14 
-and all the families that are left, each by itself, and their wives by themselves. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and all the families that are left, each by itself, and their wives by themselves. 
 
 ***
 

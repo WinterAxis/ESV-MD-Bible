@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Comfort, comfort my people, says your God. 
 
@@ -96,7 +95,7 @@ He gives power to the faint, and to him who has no might he increases strength.
 Even youths shall faint and be weary, and young men shall fall exhausted; 
 
 ###### 31 
-but they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles; they shall run and not be weary; they shall walk and not faint. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles; they shall run and not be weary; they shall walk and not faint. 
 
 ***
 

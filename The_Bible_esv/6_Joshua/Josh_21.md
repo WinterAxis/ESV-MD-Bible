@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the heads of the fathers' houses of the Levites came to Eleazar the priest and to Joshua the son of Nun and to the heads of the fathers' houses of the tribes of the people of Israel. 
 
@@ -138,7 +137,7 @@ Thus the LORD gave to Israel all the land that he swore to give to their fathers
 And the LORD gave them rest on every side just as he had sworn to their fathers. Not one of all their enemies had withstood them, for the LORD had given all their enemies into their hands. 
 
 ###### 45 
-Not one word of all the good promises that the LORD had made to the house of Israel had failed; all came to pass. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Not one word of all the good promises that the LORD had made to the house of Israel had failed; all came to pass. 
 
 ***
 

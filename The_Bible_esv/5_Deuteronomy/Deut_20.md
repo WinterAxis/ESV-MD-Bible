@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When you go out to war against your enemies, and see horses and chariots and an army larger than your own, you shall not be afraid of them, for the LORD your God is with you, who brought you up out of the land of Egypt. 
 
@@ -63,7 +62,7 @@ that they may not teach you to do according to all their abominable practices th
 "When you besiege a city for a long time, making war against it in order to take it, you shall not destroy its trees by wielding an axe against them. You may eat from them, but you shall not cut them down. Are the trees in the field human, that they should be besieged by you? 
 
 ###### 20 
-Only the trees that you know are not trees for food you may destroy and cut down, that you may build siegeworks against the city that makes war with you, until it falls. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Only the trees that you know are not trees for food you may destroy and cut down, that you may build siegeworks against the city that makes war with you, until it falls. 
 
 ***
 

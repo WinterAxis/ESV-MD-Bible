@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Woe is me! For I have become as when the summer fruit has been gathered, as when the grapes have been gleaned: there is no cluster to eat, no first-ripe fig that my soul desires. 
 
@@ -63,7 +62,7 @@ Who is a God like you, pardoning iniquity and passing over transgression for the
 He will again have compassion on us; he will tread our iniquities underfoot. You will cast all our sins into the depths of the sea. 
 
 ###### 20 
-You will show faithfulness to Jacob and steadfast love to Abraham, as you have sworn to our fathers from the days of old. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You will show faithfulness to Jacob and steadfast love to Abraham, as you have sworn to our fathers from the days of old. 
 
 ***
 

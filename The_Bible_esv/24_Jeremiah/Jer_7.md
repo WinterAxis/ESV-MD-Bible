@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD: 
 
@@ -105,7 +104,7 @@ Therefore, behold, the days are coming, declares the LORD, when it will no more 
 And the dead bodies of this people will be food for the birds of the air, and for the beasts of the earth, and none will frighten them away. 
 
 ###### 34 
-And I will silence in the cities of Judah and in the streets of Jerusalem the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, for the land shall become a waste. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will silence in the cities of Judah and in the streets of Jerusalem the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, for the land shall become a waste. 
 
 ***
 

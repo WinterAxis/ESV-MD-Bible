@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And all the people gathered as one man into the square before the Water Gate. And they told Ezra the scribe to bring the Book of the Law of Moses that the LORD had commanded Israel. 
 
@@ -57,7 +56,7 @@ So the people went out and brought them and made booths for themselves, each on 
 And all the assembly of those who had returned from the captivity made booths and lived in the booths, for from the days of Jeshua the son of Nun to that day the people of Israel had not done so. And there was very great rejoicing. 
 
 ###### 18 
-And day by day, from the first day to the last day, he read from the Book of the Law of God. They kept the feast seven days, and on the eighth day there was a solemn assembly, according to the rule. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And day by day, from the first day to the last day, he read from the Book of the Law of God. They kept the feast seven days, and on the eighth day there was a solemn assembly, according to the rule. 
 
 ***
 

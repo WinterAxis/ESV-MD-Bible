@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses and Aaron, saying, 
 
@@ -105,7 +104,7 @@ These are the people of Israel as listed by their fathers' houses. All those lis
 But the Levites were not listed among the people of Israel, as the LORD commanded Moses. 
 
 ###### 34 
-Thus did the people of Israel. According to all that the LORD commanded Moses, so they camped by their standards, and so they set out, each one in his clan, according to his fathers' house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus did the people of Israel. According to all that the LORD commanded Moses, so they camped by their standards, and so they set out, each one in his clan, according to his fathers' house. 
 
 ***
 

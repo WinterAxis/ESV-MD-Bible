@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the LORD was about to take Elijah up to heaven by a whirlwind, Elijah and Elisha were on their way from Gilgal. 
 
@@ -78,7 +77,7 @@ He went up from there to Bethel, and while he was going up on the way, some smal
 And he turned around, and when he saw them, he cursed them in the name of the LORD. And two she-bears came out of the woods and tore forty-two of the boys. 
 
 ###### 25 
-From there he went on to Mount Carmel, and from there he returned to Samaria. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+From there he went on to Mount Carmel, and from there he returned to Samaria. 
 
 ***
 

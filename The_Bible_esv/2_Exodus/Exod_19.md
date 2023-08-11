@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On the third new moon after the people of Israel had gone out of the land of Egypt, on that day they came into the wilderness of Sinai. 
 
@@ -78,7 +77,7 @@ And Moses said to the LORD, "The people cannot come up to Mount Sinai, for you y
 And the LORD said to him, "Go down, and come up bringing Aaron with you. But do not let the priests and the people break through to come up to the LORD, lest he break out against them." 
 
 ###### 25 
-So Moses went down to the people and told them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Moses went down to the people and told them. 
 
 ***
 

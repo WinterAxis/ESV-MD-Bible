@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD, when Nebuchadnezzar king of Babylon and all his army and all the kingdoms of the earth under his dominion and all the peoples were fighting against Jerusalem and all of its cities: 
 
@@ -69,7 +68,7 @@ And I will give them into the hand of their enemies and into the hand of those w
 And Zedekiah king of Judah and his officials I will give into the hand of their enemies and into the hand of those who seek their lives, into the hand of the army of the king of Babylon which has withdrawn from you. 
 
 ###### 22 
-Behold, I will command, declares the LORD, and will bring them back to this city. And they will fight against it and take it and burn it with fire. I will make the cities of Judah a desolation without inhabitant." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, I will command, declares the LORD, and will bring them back to this city. And they will fight against it and take it and burn it with fire. I will make the cities of Judah a desolation without inhabitant." 
 
 ***
 

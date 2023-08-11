@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The sons of Reuben the firstborn of Israel (for he was the firstborn, but because he defiled his father's couch, his birthright was given to the sons of Joseph the son of Israel, so that he could not be enrolled as the oldest son; 
 
@@ -81,7 +80,7 @@ These were the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jerem
 But they broke faith with the God of their fathers, and whored after the gods of the peoples of the land, whom God had destroyed before them. 
 
 ###### 26 
-So the God of Israel stirred up the spirit of Pul king of Assyria, the spirit of Tiglath-pileser king of Assyria, and he took them into exile, namely, the Reubenites, the Gadites, and the half-tribe of Manasseh, and brought them to Halah, Habor, Hara, and the river Gozan, to this day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the God of Israel stirred up the spirit of Pul king of Assyria, the spirit of Tiglath-pileser king of Assyria, and he took them into exile, namely, the Reubenites, the Gadites, and the half-tribe of Manasseh, and brought them to Halah, Habor, Hara, and the river Gozan, to this day. 
 
 ***
 

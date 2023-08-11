@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "The sin of Judah is written with a pen of iron; with a point of diamond it is engraved on the tablet of their heart, and on the horns of their altars, 
 
@@ -84,7 +83,7 @@ then there shall enter by the gates of this city kings and princes who sit on th
 And people shall come from the cities of Judah and the places around Jerusalem, from the land of Benjamin, from the Shephelah, from the hill country, and from the Negeb, bringing burnt offerings and sacrifices, grain offerings and frankincense, and bringing thank offerings to the house of the LORD. 
 
 ###### 27 
-But if you do not listen to me, to keep the Sabbath day holy, and not to bear a burden and enter by the gates of Jerusalem on the Sabbath day, then I will kindle a fire in its gates, and it shall devour the palaces of Jerusalem and shall not be quenched.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But if you do not listen to me, to keep the Sabbath day holy, and not to bear a burden and enter by the gates of Jerusalem on the Sabbath day, then I will kindle a fire in its gates, and it shall devour the palaces of Jerusalem and shall not be quenched.'" 
 
 ***
 

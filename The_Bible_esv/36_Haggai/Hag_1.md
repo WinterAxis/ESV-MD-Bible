@@ -4,141 +4,65 @@
 
 ***
 
-
-
-
-
-
 ###### 1 
-
 
 In the second year of Darius the king, in the sixth month, on the first day of the month, the word of the LORD came by the hand of Haggai the prophet to Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son of Jehozadak, the high priest: 
 
-
-
-
-
 ###### 2 
-
 
 "Thus says the LORD of hosts: These people say the time has not yet come to rebuild the house of the LORD." 
 
-
-
-
-
 ###### 3 
-
 
 Then the word of the LORD came by the hand of Haggai the prophet, 
 
-
-
-
-
 ###### 4 
-
 
 "Is it a time for you yourselves to dwell in your paneled houses, while this house lies in ruins? 
 
-
-
-
-
 ###### 5 
-
 
 Now, therefore, thus says the LORD of hosts: Consider your ways. 
 
-
-
-
-
 ###### 6 
-
 
 You have sown much, and harvested little. You eat, but you never have enough; you drink, but you never have your fill. You clothe yourselves, but no one is warm. And he who earns wages does so to put them into a bag with holes. 
 
-
-
-
-
 ###### 7 
-
 
 "Thus says the LORD of hosts: Consider your ways. 
 
-
-
-
-
 ###### 8 
-
 
 Go up to the hills and bring wood and build the house, that I may take pleasure in it and that I may be glorified, says the LORD. 
 
-
-
-
-
 ###### 9 
-
 
 You looked for much, and behold, it came to little. And when you brought it home, I blew it away. Why? declares the LORD of hosts. Because of my house that lies in ruins, while each of you busies himself with his own house. 
 
-
-
-
-
 ###### 10 
-
 
 Therefore the heavens above you have withheld the dew, and the earth has withheld its produce. 
 
-
-
-
-
 ###### 11 
-
 
 And I have called for a drought on the land and the hills, on the grain, the new wine, the oil, on what the ground brings forth, on man and beast, and on all their labors." ## The People Obey the LORD 
 
-
-
-
-
 ###### 12 
-
 
 Then Zerubbabel the son of Shealtiel, and Joshua the son of Jehozadak, the high priest, with all the remnant of the people, obeyed the voice of the LORD their God, and the words of Haggai the prophet, as the LORD their God had sent him. And the people feared the LORD. 
 
-
-
-
-
 ###### 13 
-
 
 Then Haggai, the messenger of the LORD, spoke to the people with the LORD's message, "I am with you, declares the LORD." 
 
-
-
-
-
 ###### 14 
-
 
 And the LORD stirred up the spirit of Zerubbabel the son of Shealtiel, governor of Judah, and the spirit of Joshua the son of Jehozadak, the high priest, and the spirit of all the remnant of the people. And they came and worked on the house of the LORD of hosts, their God, 
 
-
-
-
-
 ###### 15 
 
-
-on the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+on the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king. 
 
 ***
 

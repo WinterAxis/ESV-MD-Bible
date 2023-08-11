@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to Noah, "Go into the ark, you and all your household, for I have seen that you are righteous before me in this generation. 
 
@@ -75,7 +74,7 @@ Everything on the dry land in whose nostrils was the breath of life died.
 He blotted out every living thing that was on the face of the ground, man and animals and creeping things and birds of the heavens. They were blotted out from the earth. Only Noah was left, and those who were with him in the ark. 
 
 ###### 24 
-And the waters prevailed on the earth 150 days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the waters prevailed on the earth 150 days. 
 
 ***
 

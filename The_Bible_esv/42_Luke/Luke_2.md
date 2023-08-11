@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days a decree went out from Caesar Augustus that all the world should be registered. 
 
@@ -159,7 +158,7 @@ And they did not understand the saying that he spoke to them.
 And he went down with them and came to Nazareth and was submissive to them. And his mother treasured up all these things in her heart. 
 
 ###### 52 
-And Jesus increased in wisdom and in stature and in favor with God and man. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Jesus increased in wisdom and in stature and in favor with God and man. 
 
 ***
 

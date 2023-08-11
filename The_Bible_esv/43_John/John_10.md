@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. 
 
@@ -129,7 +128,7 @@ He went away again across the Jordan to the place where John had been baptizing 
 And many came to him. And they said, "John did no sign, but everything that John said about this man was true." 
 
 ###### 42 
-And many believed in him there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And many believed in him there. 
 
 ***
 

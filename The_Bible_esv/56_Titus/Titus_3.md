@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every good work, 
 
@@ -48,7 +47,7 @@ Do your best to speed Zenas the lawyer and Apollos on their way; see that they l
 And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. 
 
 ###### 15 
-All who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+All who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. 
 
 ***
 

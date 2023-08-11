@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Solomon began to build the house of the LORD in Jerusalem on Mount Moriah, where the LORD had appeared to David his father, at the place that David had appointed, on the threshing floor of Ornan the Jebusite. 
 
@@ -54,7 +53,7 @@ In front of the house he made two pillars thirty-five cubits high, with a capita
 He made chains like a necklace and put them on the tops of the pillars, and he made a hundred pomegranates and put them on the chains. 
 
 ###### 17 
-He set up the pillars in front of the temple, one on the south, the other on the north; that on the south he called Jachin, and that on the north Boaz. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He set up the pillars in front of the temple, one on the south, the other on the north; that on the south he called Jachin, and that on the north Boaz. 
 
 ***
 

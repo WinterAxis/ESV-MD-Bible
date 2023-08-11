@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 He also said to the disciples, **"There was a rich man who had a manager, and charges were brought to him that this man was wasting his possessions.** 
 
@@ -96,7 +95,7 @@ But Abraham said, 'They have Moses and the Prophets; let them hear them.'
 And he said, 'No, father Abraham, but if someone goes to them from the dead, they will repent.' 
 
 ###### 31 
-He said to him, 'If they do not hear Moses and the Prophets, neither will they be convinced if someone should rise from the dead.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He said to him, 'If they do not hear Moses and the Prophets, neither will they be convinced if someone should rise from the dead.'" 
 
 ***
 

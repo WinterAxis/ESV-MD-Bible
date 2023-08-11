@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But I, brothers, could not address you as spiritual people, but as people of the flesh, as infants in Christ. 
 
@@ -72,7 +71,7 @@ So let no one boast in men. For all things are yours,
 whether Paul or Apollos or Cephas or the world or life or death or the present or the future--all are yours, 
 
 ###### 23 
-and you are Christ's, and Christ is God's. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and you are Christ's, and Christ is God's. 
 
 ***
 

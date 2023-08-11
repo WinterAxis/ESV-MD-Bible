@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses in the wilderness of Sinai, in the first month of the second year after they had come out of the land of Egypt, saying, 
 
@@ -72,7 +71,7 @@ And sometimes the cloud remained from evening until morning. And when the cloud 
 Whether it was two days, or a month, or a longer time, that the cloud continued over the tabernacle, abiding there, the people of Israel remained in camp and did not set out, but when it lifted they set out. 
 
 ###### 23 
-At the command of the LORD they camped, and at the command of the LORD they set out. They kept the charge of the LORD, at the command of the LORD by Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+At the command of the LORD they camped, and at the command of the LORD they set out. They kept the charge of the LORD, at the command of the LORD by Moses. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, 
 
@@ -60,7 +59,7 @@ For it is time for judgment to begin at the household of God; and if it begins w
 And "If the righteous is scarcely saved, what will become of the ungodly and the sinner?" 
 
 ###### 19 
-Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. 
 
 ***
 

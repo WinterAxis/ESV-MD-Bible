@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Cast your bread upon the waters, for you will find it after many days. 
 
@@ -33,7 +32,7 @@ So if a person lives many years, let him rejoice in them all; but let him rememb
 Rejoice, O young man, in your youth, and let your heart cheer you in the days of your youth. Walk in the ways of your heart and the sight of your eyes. But know that for all these things God will bring you into judgment. 
 
 ###### 10 
-Remove vexation from your heart, and put away pain from your body, for youth and the dawn of life are vanity. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Remove vexation from your heart, and put away pain from your body, for youth and the dawn of life are vanity. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Or do you not know, brothers--for I am speaking to those who know the law--that the law is binding on a person only as long as he lives? 
 
@@ -78,7 +77,7 @@ but I see in my members another law waging war against the law of my mind and ma
 Wretched man that I am! Who will deliver me from this body of death? 
 
 ###### 25 
-Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. 
 
 ***
 

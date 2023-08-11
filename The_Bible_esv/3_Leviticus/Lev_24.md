@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -72,7 +71,7 @@ Whoever kills an animal shall make it good, and whoever kills a person shall be 
 You shall have the same rule for the sojourner and for the native, for I am the LORD your God." 
 
 ###### 23 
-So Moses spoke to the people of Israel, and they brought out of the camp the one who had cursed and stoned him with stones. Thus the people of Israel did as the LORD commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Moses spoke to the people of Israel, and they brought out of the camp the one who had cursed and stoned him with stones. Thus the people of Israel did as the LORD commanded Moses. 
 
 ***
 

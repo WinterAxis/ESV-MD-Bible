@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Elihu answered and said: 
 
@@ -51,7 +50,7 @@ How much less when you say that you do not see him, that the case is before him,
 And now, because his anger does not punish, and he does not take much note of transgression, 
 
 ###### 16 
-Job opens his mouth in empty talk; he multiplies words without knowledge." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Job opens his mouth in empty talk; he multiplies words without knowledge." 
 
 ***
 

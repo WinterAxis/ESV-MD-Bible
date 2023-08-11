@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now these are the kings of the land whom the people of Israel defeated and took possession of their land beyond the Jordan toward the sunrise, from the Valley of the Arnon to Mount Hermon, with all the Arabah eastward: 
 
@@ -75,7 +74,7 @@ the king of Kedesh, one; the king of Jokneam in Carmel, one;
 the king of Dor in Naphath-dor, one; the king of Goiim in Galilee, one; 
 
 ###### 24 
-the king of Tirzah, one: in all, thirty-one kings. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the king of Tirzah, one: in all, thirty-one kings. 
 
 ***
 

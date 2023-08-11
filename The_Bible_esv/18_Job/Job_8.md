@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Bildad the Shuhite answered and said: 
 
@@ -69,7 +68,7 @@ Behold, this is the joy of his way, and out of the soil others will spring.
 He will yet fill your mouth with laughter, and your lips with shouting. 
 
 ###### 22 
-Those who hate you will be clothed with shame, and the tent of the wicked will be no more." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Those who hate you will be clothed with shame, and the tent of the wicked will be no more." 
 
 ***
 

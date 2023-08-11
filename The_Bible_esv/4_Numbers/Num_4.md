@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses and Aaron, saying, 
 
@@ -150,7 +149,7 @@ from thirty years old up to fifty years old, everyone who could come to do the s
 those listed were 8,580. 
 
 ###### 49 
-According to the commandment of the LORD through Moses they were listed, each one with his task of serving or carrying. Thus they were listed by him, as the LORD commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+According to the commandment of the LORD through Moses they were listed, each one with his task of serving or carrying. Thus they were listed by him, as the LORD commanded Moses. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD called Moses and spoke to him from the tent of meeting, saying, 
 
@@ -54,7 +53,7 @@ And the priest shall bring it to the altar and wring off its head and burn it on
 He shall remove its crop with its contents and cast it beside the altar on the east side, in the place for ashes. 
 
 ###### 17 
-He shall tear it open by its wings, but shall not sever it completely. And the priest shall burn it on the altar, on the wood that is on the fire. It is a burnt offering, a food offering with a pleasing aroma to the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He shall tear it open by its wings, but shall not sever it completely. And the priest shall burn it on the altar, on the wood that is on the fire. It is a burnt offering, a food offering with a pleasing aroma to the LORD. 
 
 ***
 

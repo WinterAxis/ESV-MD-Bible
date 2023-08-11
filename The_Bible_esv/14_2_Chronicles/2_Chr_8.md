@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At the end of twenty years, in which Solomon had built the house of the LORD and his own house, 
 
@@ -57,7 +56,7 @@ Thus was accomplished all the work of Solomon from the day the foundation of the
 Then Solomon went to Ezion-geber and Eloth on the shore of the sea, in the land of Edom. 
 
 ###### 18 
-And Hiram sent to him by the hand of his servants ships and servants familiar with the sea, and they went to Ophir together with the servants of Solomon and brought from there 450 talents of gold and brought it to King Solomon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Hiram sent to him by the hand of his servants ships and servants familiar with the sea, and they went to Ophir together with the servants of Solomon and brought from there 450 talents of gold and brought it to King Solomon. 
 
 ***
 

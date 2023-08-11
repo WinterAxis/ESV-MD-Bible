@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Gather together, yes, gather, O shameless nation, 
 
@@ -48,7 +47,7 @@ And he will stretch out his hand against the north and destroy Assyria, and he w
 Herds shall lie down in her midst, all kinds of beasts; even the owl and the hedgehog shall lodge in her capitals; a voice shall hoot in the window; devastation will be on the threshold; for her cedar work will be laid bare. 
 
 ###### 15 
-This is the exultant city that lived securely, that said in her heart, "I am, and there is no one else." What a desolation she has become, a lair for wild beasts! Everyone who passes by her hisses and shakes his fist. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+This is the exultant city that lived securely, that said in her heart, "I am, and there is no one else." What a desolation she has become, a lair for wild beasts! Everyone who passes by her hisses and shakes his fist. 
 
 ***
 

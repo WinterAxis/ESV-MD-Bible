@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear, O sons, a father's instruction, and be attentive, that you may gain insight, 
 
@@ -84,7 +83,7 @@ Let your eyes look directly forward, and your gaze be straight before you.
 Ponder the path of your feet; then all your ways will be sure. 
 
 ###### 27 
-Do not swerve to the right or to the left; turn your foot away from evil. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Do not swerve to the right or to the left; turn your foot away from evil. 
 
 ***
 

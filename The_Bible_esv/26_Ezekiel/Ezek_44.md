@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he brought me back to the outer gate of the sanctuary, which faces east. And it was shut. 
 
@@ -96,7 +95,7 @@ They shall eat the grain offering, the sin offering, and the guilt offering, and
 And the first of all the firstfruits of all kinds, and every offering of all kinds from all your offerings, shall belong to the priests. You shall also give to the priests the first of your dough, that a blessing may rest on your house. 
 
 ###### 31 
-The priests shall not eat of anything, whether bird or beast, that has died of itself or is torn by wild animals. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The priests shall not eat of anything, whether bird or beast, that has died of itself or is torn by wild animals. 
 
 ***
 

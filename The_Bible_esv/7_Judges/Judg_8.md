@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the men of Ephraim said to him, "What is this that you have done to us, not to call us when you went to fight against Midian?" And they accused him fiercely. 
 
@@ -108,7 +107,7 @@ As soon as Gideon died, the people of Israel turned again and whored after the B
 And the people of Israel did not remember the LORD their God, who had delivered them from the hand of all their enemies on every side, 
 
 ###### 35 
-and they did not show steadfast love to the family of Jerubbaal (that is, Gideon) in return for all the good that he had done to Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and they did not show steadfast love to the family of Jerubbaal (that is, Gideon) in return for all the good that he had done to Israel. 
 
 ***
 

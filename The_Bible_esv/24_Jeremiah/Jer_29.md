@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the words of the letter that Jeremiah the prophet sent from Jerusalem to the surviving elders of the exiles, and to the priests, the prophets, and all the people, whom Nebuchadnezzar had taken into exile from Jerusalem to Babylon. 
 
@@ -99,7 +98,7 @@ Then the word of the LORD came to Jeremiah:
 "Send to all the exiles, saying, 'Thus says the LORD concerning Shemaiah of Nehelam: Because Shemaiah had prophesied to you when I did not send him, and has made you trust in a lie, 
 
 ###### 32 
-therefore thus says the LORD: Behold, I will punish Shemaiah of Nehelam and his descendants. He shall not have anyone living among this people, and he shall not see the good that I will do to my people, declares the LORD, for he has spoken rebellion against the LORD.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+therefore thus says the LORD: Behold, I will punish Shemaiah of Nehelam and his descendants. He shall not have anyone living among this people, and he shall not see the good that I will do to my people, declares the LORD, for he has spoken rebellion against the LORD.'" 
 
 ***
 

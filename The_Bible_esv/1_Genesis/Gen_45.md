@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Joseph could not control himself before all those who stood by him. He cried, "Make everyone go out from me." So no one stayed with him when Joseph made himself known to his brothers. 
 
@@ -87,7 +86,7 @@ And they told him, "Joseph is still alive, and he is ruler over all the land of 
 But when they told him all the words of Joseph, which he had said to them, and when he saw the wagons that Joseph had sent to carry him, the spirit of their father Jacob revived. 
 
 ###### 28 
-And Israel said, "It is enough; Joseph my son is still alive. I will go and see him before I die." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Israel said, "It is enough; Joseph my son is still alive. I will go and see him before I die." 
 
 ***
 

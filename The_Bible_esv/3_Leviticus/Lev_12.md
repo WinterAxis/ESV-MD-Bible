@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -27,7 +26,7 @@ But if she bears a female child, then she shall be unclean two weeks, as in her 
 and he shall offer it before the LORD and make atonement for her. Then she shall be clean from the flow of her blood. This is the law for her who bears a child, either male or female. 
 
 ###### 8 
-And if she cannot afford a lamb, then she shall take two turtledoves or two pigeons, one for a burnt offering and the other for a sin offering. And the priest shall make atonement for her, and she shall be clean." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And if she cannot afford a lamb, then she shall take two turtledoves or two pigeons, one for a burnt offering and the other for a sin offering. And the priest shall make atonement for her, and she shall be clean." 
 
 ***
 

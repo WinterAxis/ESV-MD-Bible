@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 He made the altar of burnt offering of acacia wood. Five cubits was its length, and five cubits its breadth. It was square, and three cubits was its height. 
 
@@ -96,7 +95,7 @@ The bronze that was offered was seventy talents and 2,400 shekels;
 with it he made the bases for the entrance of the tent of meeting, the bronze altar and the bronze grating for it and all the utensils of the altar, 
 
 ###### 31 
-the bases around the court, and the bases of the gate of the court, all the pegs of the tabernacle, and all the pegs around the court. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the bases around the court, and the bases of the gate of the court, all the pegs of the tabernacle, and all the pegs around the court. 
 
 ***
 

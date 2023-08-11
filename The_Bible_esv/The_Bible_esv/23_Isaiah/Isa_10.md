@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Woe to those who decree iniquitous decrees, and the writers who keep writing oppression, 
 
@@ -105,7 +104,7 @@ This very day he will halt at Nob; he will shake his fist at the mount of the da
 Behold, the Lord God of hosts will lop the boughs with terrifying power; the great in height will be hewn down, and the lofty will be brought low. 
 
 ###### 34 
-He will cut down the thickets of the forest with an axe, and Lebanon will fall by the Majestic One. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He will cut down the thickets of the forest with an axe, and Lebanon will fall by the Majestic One. 
 
 ***
 

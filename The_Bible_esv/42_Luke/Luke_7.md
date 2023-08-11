@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After he had finished all his sayings in the hearing of the people, he entered Capernaum. 
 
@@ -153,7 +152,7 @@ And he said to her, **"Your sins are forgiven."**
 Then those who were at table with him began to say among themselves, "Who is this, who even forgives sins?" 
 
 ###### 50 
-And he said to the woman, **"Your faith has saved you; go in peace."** ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he said to the woman, **"Your faith has saved you; go in peace."** 
 
 ***
 

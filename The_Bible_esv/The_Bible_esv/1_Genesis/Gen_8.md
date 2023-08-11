@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But God remembered Noah and all the beasts and all the livestock that were with him in the ark. And God made a wind blow over the earth, and the waters subsided. 
 
@@ -69,7 +68,7 @@ Then Noah built an altar to the LORD and took some of every clean animal and som
 And when the LORD smelled the pleasing aroma, the LORD said in his heart, "I will never again curse the ground because of man, for the intention of man's heart is evil from his youth. Neither will I ever again strike down every living creature as I have done. 
 
 ###### 22 
-While the earth remains, seedtime and harvest, cold and heat, summer and winter, day and night, shall not cease." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+While the earth remains, seedtime and harvest, cold and heat, summer and winter, day and night, shall not cease." 
 
 ***
 

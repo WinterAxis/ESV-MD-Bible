@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Ah, you destroyer, who yourself have not been destroyed, you traitor, whom none has betrayed! When you have ceased to destroy, you will be destroyed; and when you have finished betraying, they will betray you. 
 
@@ -75,7 +74,7 @@ For the LORD is our judge; the LORD is our lawgiver; the LORD is our king; he wi
 Your cords hang loose; they cannot hold the mast firm in its place or keep the sail spread out. Then prey and spoil in abundance will be divided; even the lame will take the prey. 
 
 ###### 24 
-And no inhabitant will say, "I am sick"; the people who dwell there will be forgiven their iniquity. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And no inhabitant will say, "I am sick"; the people who dwell there will be forgiven their iniquity. 
 
 ***
 

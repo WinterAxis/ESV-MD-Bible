@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Behold my servant, whom I uphold, my chosen, in whom my soul delights; I have put my Spirit upon him; he will bring forth justice to the nations. 
 
@@ -78,7 +77,7 @@ Who among you will give ear to this, will attend and listen for the time to come
 Who gave up Jacob to the looter, and Israel to the plunderers? Was it not the LORD, against whom we have sinned, in whose ways they would not walk, and whose law they would not obey? 
 
 ###### 25 
-So he poured on him the heat of his anger and the might of battle; it set him on fire all around, but he did not understand; it burned him up, but he did not take it to heart. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So he poured on him the heat of his anger and the might of battle; it set him on fire all around, but he did not understand; it burned him up, but he did not take it to heart. 
 
 ***
 

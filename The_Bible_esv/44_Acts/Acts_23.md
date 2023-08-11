@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And looking intently at the council, Paul said, "Brothers, I have lived my life before God in all good conscience up to this day." 
 
@@ -108,7 +107,7 @@ When they had come to Caesarea and delivered the letter to the governor, they pr
 On reading the letter, he asked what province he was from. And when he learned that he was from Cilicia, 
 
 ###### 35 
-he said, "I will give you a hearing when your accusers arrive." And he commanded him to be guarded in Herod's praetorium. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+he said, "I will give you a hearing when your accusers arrive." And he commanded him to be guarded in Herod's praetorium. 
 
 ***
 

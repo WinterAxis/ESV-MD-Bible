@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Likewise, wives, be subject to your own husbands, so that even if some do not obey the word, they may be won without a word by the conduct of their wives, 
 
@@ -69,7 +68,7 @@ because they formerly did not obey, when God's patience waited in the days of No
 Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, 
 
 ###### 22 
-who has gone into heaven and is at the right hand of God, with angels, authorities, and powers having been subjected to him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+who has gone into heaven and is at the right hand of God, with angels, authorities, and powers having been subjected to him. 
 
 ***
 

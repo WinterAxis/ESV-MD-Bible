@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the fourth year of King Darius, the word of the LORD came to Zechariah on the fourth day of the ninth month, which is Chislev. 
 
@@ -45,7 +44,7 @@ They made their hearts diamond-hard lest they should hear the law and the words 
 "As I called, and they would not hear, so they called, and I would not hear," says the LORD of hosts, 
 
 ###### 14 
-"and I scattered them with a whirlwind among all the nations that they had not known. Thus the land they left was desolate, so that no one went to and fro, and the pleasant land was made desolate." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"and I scattered them with a whirlwind among all the nations that they had not known. Thus the land they left was desolate, so that no one went to and fro, and the pleasant land was made desolate." 
 
 ***
 

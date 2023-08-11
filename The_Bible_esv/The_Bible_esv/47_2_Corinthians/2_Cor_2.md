@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 For I made up my mind not to make another painful visit to you. 
 
@@ -54,7 +53,7 @@ For we are the aroma of Christ to God among those who are being saved and among 
 to one a fragrance from death to death, to the other a fragrance from life to life. Who is sufficient for these things? 
 
 ###### 17 
-For we are not, like so many, peddlers of God's word, but as men of sincerity, as commissioned by God, in the sight of God we speak in Christ. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For we are not, like so many, peddlers of God's word, but as men of sincerity, as commissioned by God, in the sight of God we speak in Christ. 
 
 ***
 

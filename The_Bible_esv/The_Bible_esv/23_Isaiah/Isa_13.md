@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle concerning Babylon which Isaiah the son of Amoz saw. 
 
@@ -69,7 +68,7 @@ It will never be inhabited or lived in for all generations; no Arab will pitch h
 But wild animals will lie down there, and their houses will be full of howling creatures; there ostriches will dwell, and there wild goats will dance. 
 
 ###### 22 
-Hyenas will cry in its towers, and jackals in the pleasant palaces; its time is close at hand and its days will not be prolonged. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Hyenas will cry in its towers, and jackals in the pleasant palaces; its time is close at hand and its days will not be prolonged. 
 
 ***
 

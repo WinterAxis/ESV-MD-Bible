@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When the LORD your God brings you into the land that you are entering to take possession of it, and clears away many nations before you, the Hittites, the Girgashites, the Amorites, the Canaanites, the Perizzites, the Hivites, and the Jebusites, seven nations more numerous and mightier than you, 
 
@@ -81,7 +80,7 @@ And he will give their kings into your hand, and you shall make their name peris
 The carved images of their gods you shall burn with fire. You shall not covet the silver or the gold that is on them or take it for yourselves, lest you be ensnared by it, for it is an abomination to the LORD your God. 
 
 ###### 26 
-And you shall not bring an abominable thing into your house and become devoted to destruction like it. You shall utterly detest and abhor it, for it is devoted to destruction. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall not bring an abominable thing into your house and become devoted to destruction like it. You shall utterly detest and abhor it, for it is devoted to destruction. 
 
 ***
 

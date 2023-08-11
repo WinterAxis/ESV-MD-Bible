@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the Sabbath was past, Mary Magdalene, Mary the mother of James, and Salome bought spices, so that they might go and anoint him. 
 
@@ -63,7 +62,7 @@ they will pick up serpents with their hands; and if they drink any deadly poison
 So then the Lord Jesus, after he had spoken to them, was taken up into heaven and sat down at the right hand of God. 
 
 ###### 20 
-And they went out and preached everywhere, while the Lord worked with them and confirmed the message by accompanying signs.]] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they went out and preached everywhere, while the Lord worked with them and confirmed the message by accompanying signs.]] 
 
 ***
 

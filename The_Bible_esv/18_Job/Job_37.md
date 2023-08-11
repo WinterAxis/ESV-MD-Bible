@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "At this also my heart trembles and leaps out of its place. 
 
@@ -75,7 +74,7 @@ Out of the north comes golden splendor; God is clothed with awesome majesty.
 The Almighty--we cannot find him; he is great in power; justice and abundant righteousness he will not violate. 
 
 ###### 24 
-Therefore men fear him; he does not regard any who are wise in their own conceit." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore men fear him; he does not regard any who are wise in their own conceit." 
 
 ***
 

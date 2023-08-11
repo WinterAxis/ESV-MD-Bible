@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the Spirit expressly says that in later times some will depart from the faith by devoting themselves to deceitful spirits and teachings of demons, 
 
@@ -51,7 +50,7 @@ Do not neglect the gift you have, which was given you by prophecy when the counc
 Practice these things, immerse yourself in them, so that all may see your progress. 
 
 ###### 16 
-Keep a close watch on yourself and on the teaching. Persist in this, for by so doing you will save both yourself and your hearers. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Keep a close watch on yourself and on the teaching. Persist in this, for by so doing you will save both yourself and your hearers. 
 
 ***
 

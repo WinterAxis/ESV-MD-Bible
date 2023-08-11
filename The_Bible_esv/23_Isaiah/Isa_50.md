@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD: "Where is your mother's certificate of divorce, with which I sent her away? Or which of my creditors is it to whom I have sold you? Behold, for your iniquities you were sold, and for your transgressions your mother was sent away. 
 
@@ -36,7 +35,7 @@ Behold, the Lord God helps me; who will declare me guilty? Behold, all of them w
 Who among you fears the LORD and obeys the voice of his servant? Let him who walks in darkness and has no light trust in the name of the LORD and rely on his God. 
 
 ###### 11 
-Behold, all you who kindle a fire, who equip yourselves with burning torches! Walk by the light of your fire, and by the torches that you have kindled! This you have from my hand: you shall lie down in torment. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, all you who kindle a fire, who equip yourselves with burning torches! Walk by the light of your fire, and by the torches that you have kindled! This you have from my hand: you shall lie down in torment. 
 
 ***
 

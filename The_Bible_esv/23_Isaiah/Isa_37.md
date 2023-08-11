@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as King Hezekiah heard it, he tore his clothes and covered himself with sackcloth and went into the house of the LORD. 
 
@@ -117,7 +116,7 @@ And the angel of the LORD went out and struck down 185,000 in the camp of the As
 Then Sennacherib king of Assyria departed and returned home and lived at Nineveh. 
 
 ###### 38 
-And as he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer, his sons, struck him down with the sword. And after they escaped into the land of Ararat, Esarhaddon his son reigned in his place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And as he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer, his sons, struck him down with the sword. And after they escaped into the land of Ararat, Esarhaddon his son reigned in his place. 
 
 ***
 

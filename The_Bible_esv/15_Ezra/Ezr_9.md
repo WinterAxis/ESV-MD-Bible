@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After these things had been done, the officials approached me and said, "The people of Israel and the priests and the Levites have not separated themselves from the peoples of the lands with their abominations, from the Canaanites, the Hittites, the Perizzites, the Jebusites, the Ammonites, the Moabites, the Egyptians, and the Amorites. 
 
@@ -48,7 +47,7 @@ And after all that has come upon us for our evil deeds and for our great guilt, 
 shall we break your commandments again and intermarry with the peoples who practice these abominations? Would you not be angry with us until you consumed us, so that there should be no remnant, nor any to escape? 
 
 ###### 15 
-O LORD, the God of Israel, you are just, for we are left a remnant that has escaped, as it is today. Behold, we are before you in our guilt, for none can stand before you because of this." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+O LORD, the God of Israel, you are just, for we are left a remnant that has escaped, as it is today. Behold, we are before you in our guilt, for none can stand before you because of this." 
 
 ***
 

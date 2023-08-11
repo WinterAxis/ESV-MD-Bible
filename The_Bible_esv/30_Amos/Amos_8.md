@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 This is what the Lord God showed me: behold, a basket of summer fruit. 
 
@@ -45,7 +44,7 @@ They shall wander from sea to sea, and from north to east; they shall run to and
 "In that day the lovely virgins and the young men shall faint for thirst. 
 
 ###### 14 
-Those who swear by the Guilt of Samaria, and say, 'As your god lives, O Dan,' and, 'As the Way of Beersheba lives,' they shall fall, and never rise again." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Those who swear by the Guilt of Samaria, and say, 'As your god lives, O Dan,' and, 'As the Way of Beersheba lives,' they shall fall, and never rise again." 
 
 ***
 

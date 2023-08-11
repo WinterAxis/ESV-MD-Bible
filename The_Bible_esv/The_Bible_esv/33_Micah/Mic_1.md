@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Micah of Moresheth in the days of Jotham, Ahaz, and Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem. ## The Coming Destruction 
 
@@ -51,7 +50,7 @@ Therefore you shall give parting gifts to Moresheth-gath; the houses of Achzib s
 I will again bring a conqueror to you, inhabitants of Mareshah; the glory of Israel shall come to Adullam. 
 
 ###### 16 
-Make yourselves bald and cut off your hair, for the children of your delight; make yourselves as bald as the eagle, for they shall go from you into exile. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Make yourselves bald and cut off your hair, for the children of your delight; make yourselves as bald as the eagle, for they shall go from you into exile. 
 
 ***
 

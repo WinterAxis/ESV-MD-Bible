@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "At that time shall arise Michael, the great prince who has charge of your people. And there shall be a time of trouble, such as never has been since there was a nation till that time. But at that time your people shall be delivered, everyone whose name shall be found written in the book. 
 
@@ -42,7 +41,7 @@ And from the time that the regular burnt offering is taken away and the abominat
 Blessed is he who waits and arrives at the 1,335 days. 
 
 ###### 13 
-But go your way till the end. And you shall rest and shall stand in your allotted place at the end of the days." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But go your way till the end. And you shall rest and shall stand in your allotted place at the end of the days." 
 
 ***
 

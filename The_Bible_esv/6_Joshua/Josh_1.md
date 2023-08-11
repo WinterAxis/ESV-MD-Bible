@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After the death of Moses the servant of the LORD, the LORD said to Joshua the son of Nun, Moses' assistant, 
 
@@ -57,7 +56,7 @@ And they answered Joshua, "All that you have commanded us we will do, and wherev
 Just as we obeyed Moses in all things, so we will obey you. Only may the LORD your God be with you, as he was with Moses! 
 
 ###### 18 
-Whoever rebels against your commandment and disobeys your words, whatever you command him, shall be put to death. Only be strong and courageous." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Whoever rebels against your commandment and disobeys your words, whatever you command him, shall be put to death. Only be strong and courageous." 
 
 ***
 

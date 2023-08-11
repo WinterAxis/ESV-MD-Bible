@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The proverbs of Solomon, son of David, king of Israel: 
 
@@ -102,7 +101,7 @@ therefore they shall eat the fruit of their way, and have their fill of their ow
 For the simple are killed by their turning away, and the complacency of fools destroys them; 
 
 ###### 33 
-but whoever listens to me will dwell secure and will be at ease, without dread of disaster." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but whoever listens to me will dwell secure and will be at ease, without dread of disaster." 
 
 ***
 

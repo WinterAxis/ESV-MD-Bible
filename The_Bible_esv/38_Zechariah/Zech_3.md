@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he showed me Joshua the high priest standing before the angel of the LORD, and Satan standing at his right hand to accuse him. 
 
@@ -33,7 +32,7 @@ Hear now, O Joshua the high priest, you and your friends who sit before you, for
 For behold, on the stone that I have set before Joshua, on a single stone with seven eyes, I will engrave its inscription, declares the LORD of hosts, and I will remove the iniquity of this land in a single day. 
 
 ###### 10 
-In that day, declares the LORD of hosts, every one of you will invite his neighbor to come under his vine and under his fig tree." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In that day, declares the LORD of hosts, every one of you will invite his neighbor to come under his vine and under his fig tree." 
 
 ***
 

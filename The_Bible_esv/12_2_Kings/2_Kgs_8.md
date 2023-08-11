@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Elisha had said to the woman whose son he had restored to life, "Arise, and depart with your household, and sojourn wherever you can, for the LORD has called for a famine, and it will come upon the land for seven years." 
 
@@ -90,7 +89,7 @@ He also walked in the way of the house of Ahab and did what was evil in the sigh
 He went with Joram the son of Ahab to make war against Hazael king of Syria at Ramoth-gilead, and the Syrians wounded Joram. 
 
 ###### 29 
-And King Joram returned to be healed in Jezreel of the wounds that the Syrians had given him at Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram king of Judah went down to see Joram the son of Ahab in Jezreel, because he was sick. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And King Joram returned to be healed in Jezreel of the wounds that the Syrians had given him at Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram king of Judah went down to see Joram the son of Ahab in Jezreel, because he was sick. 
 
 ***
 

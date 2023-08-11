@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then all the people of Israel came out, from Dan to Beersheba, including the land of Gilead, and the congregation assembled as one man to the LORD at Mizpah. 
 
@@ -147,7 +146,7 @@ So all who fell that day of Benjamin were 25,000 men who drew the sword, all of 
 But 600 men turned and fled toward the wilderness to the rock of Rimmon and remained at the rock of Rimmon four months. 
 
 ###### 48 
-And the men of Israel turned back against the people of Benjamin and struck them with the edge of the sword, the city, men and beasts and all that they found. And all the towns that they found they set on fire. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the men of Israel turned back against the people of Benjamin and struck them with the edge of the sword, the city, men and beasts and all that they found. And all the towns that they found they set on fire. 
 
 ***
 

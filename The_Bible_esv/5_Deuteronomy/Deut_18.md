@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "The Levitical priests, all the tribe of Levi, shall have no portion or inheritance with Israel. They shall eat the LORD's food offerings as their inheritance. 
 
@@ -69,7 +68,7 @@ But the prophet who presumes to speak a word in my name that I have not commande
 And if you say in your heart, 'How may we know the word that the LORD has not spoken?'-- 
 
 ###### 22 
-when a prophet speaks in the name of the LORD, if the word does not come to pass or come true, that is a word that the LORD has not spoken; the prophet has spoken it presumptuously. You need not be afraid of him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+when a prophet speaks in the name of the LORD, if the word does not come to pass or come true, that is a word that the LORD has not spoken; the prophet has spoken it presumptuously. You need not be afraid of him. 
 
 ***
 

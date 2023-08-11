@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Give ear, O heavens, and I will speak, and let the earth hear the words of my mouth. 
 
@@ -159,7 +158,7 @@ And die on the mountain which you go up, and be gathered to your people, as Aaro
 because you broke faith with me in the midst of the people of Israel at the waters of Meribah-kadesh, in the wilderness of Zin, and because you did not treat me as holy in the midst of the people of Israel. 
 
 ###### 52 
-For you shall see the land before you, but you shall not go there, into the land that I am giving to the people of Israel." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For you shall see the land before you, but you shall not go there, into the land that I am giving to the people of Israel." 
 
 ***
 

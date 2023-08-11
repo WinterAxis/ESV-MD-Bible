@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle concerning Tyre. Wail, O ships of Tarshish, for Tyre is laid waste, without house or harbor! From the land of Cyprus it is revealed to them. 
 
@@ -57,7 +56,7 @@ In that day Tyre will be forgotten for seventy years, like the days of one king.
 At the end of seventy years, the LORD will visit Tyre, and she will return to her wages and will prostitute herself with all the kingdoms of the world on the face of the earth. 
 
 ###### 18 
-Her merchandise and her wages will be holy to the LORD. It will not be stored or hoarded, but her merchandise will supply abundant food and fine clothing for those who dwell before the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Her merchandise and her wages will be holy to the LORD. It will not be stored or hoarded, but her merchandise will supply abundant food and fine clothing for those who dwell before the LORD. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Solomon purposed to build a temple for the name of the LORD, and a royal palace for himself. 
 
@@ -57,7 +56,7 @@ And we will cut whatever timber you need from Lebanon and bring it to you in raf
 Then Solomon counted all the resident aliens who were in the land of Israel, after the census of them that David his father had taken, and there were found 153,600. 
 
 ###### 18 
-Seventy thousand of them he assigned to bear burdens, 80,000 to quarry in the hill country, and 3,600 as overseers to make the people work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Seventy thousand of them he assigned to bear burdens, 80,000 to quarry in the hill country, and 3,600 as overseers to make the people work. 
 
 ***
 

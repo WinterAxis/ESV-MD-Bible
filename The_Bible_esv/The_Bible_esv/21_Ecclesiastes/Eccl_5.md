@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Guard your steps when you go to the house of God. To draw near to listen is better than to offer the sacrifice of fools, for they do not know that they are doing evil. 
 
@@ -63,7 +62,7 @@ Behold, what I have seen to be good and fitting is to eat and drink and find enj
 Everyone also to whom God has given wealth and possessions and power to enjoy them, and to accept his lot and rejoice in his toil--this is the gift of God. 
 
 ###### 20 
-For he will not much remember the days of his life because God keeps him occupied with joy in his heart. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For he will not much remember the days of his life because God keeps him occupied with joy in his heart. 
 
 ***
 

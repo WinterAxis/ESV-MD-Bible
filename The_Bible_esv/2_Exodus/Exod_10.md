@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to Moses, "Go in to Pharaoh, for I have hardened his heart and the heart of his servants, that I may show these signs of mine among them, 
 
@@ -90,7 +89,7 @@ But the LORD hardened Pharaoh's heart, and he would not let them go.
 Then Pharaoh said to him, "Get away from me; take care never to see my face again, for on the day you see my face you shall die." 
 
 ###### 29 
-Moses said, "As you say! I will not see your face again." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moses said, "As you say! I will not see your face again." 
 
 ***
 

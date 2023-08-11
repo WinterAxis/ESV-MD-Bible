@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 when I would heal Israel, the iniquity of Ephraim is revealed, and the evil deeds of Samaria, for they deal falsely; the thief breaks in, and the bandits raid outside. 
 
@@ -51,7 +50,7 @@ They do not cry to me from the heart, but they wail upon their beds; for grain a
 Although I trained and strengthened their arms, yet they devise evil against me. 
 
 ###### 16 
-They return, but not upward; they are like a treacherous bow; their princes shall fall by the sword because of the insolence of their tongue. This shall be their derision in the land of Egypt. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They return, but not upward; they are like a treacherous bow; their princes shall fall by the sword because of the insolence of their tongue. This shall be their derision in the land of Egypt. 
 
 ***
 

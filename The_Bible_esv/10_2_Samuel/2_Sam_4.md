@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Ish-bosheth, Saul's son, heard that Abner had died at Hebron, his courage failed, and all Israel was dismayed. 
 
@@ -39,7 +38,7 @@ when one told me, 'Behold, Saul is dead,' and thought he was bringing good news,
 How much more, when wicked men have killed a righteous man in his own house on his bed, shall I not now require his blood at your hand and destroy you from the earth?" 
 
 ###### 12 
-And David commanded his young men, and they killed them and cut off their hands and feet and hanged them beside the pool at Hebron. But they took the head of Ish-bosheth and buried it in the tomb of Abner at Hebron. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And David commanded his young men, and they killed them and cut off their hands and feet and hanged them beside the pool at Hebron. But they took the head of Ish-bosheth and buried it in the tomb of Abner at Hebron. 
 
 ***
 

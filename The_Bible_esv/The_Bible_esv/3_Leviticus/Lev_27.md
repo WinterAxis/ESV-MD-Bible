@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -105,7 +104,7 @@ And every tithe of herds and flocks, every tenth animal of all that pass under t
 One shall not differentiate between good or bad, neither shall he make a substitute for it; and if he does substitute for it, then both it and the substitute shall be holy; it shall not be redeemed." 
 
 ###### 34 
-These are the commandments that the LORD commanded Moses for the people of Israel on Mount Sinai. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the commandments that the LORD commanded Moses for the people of Israel on Mount Sinai. 
 
 ***
 

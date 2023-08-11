@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -45,7 +44,7 @@ He who is far off shall die of pestilence, and he who is near shall fall by the 
 And you shall know that I am the LORD, when their slain lie among their idols around their altars, on every high hill, on all the mountaintops, under every green tree, and under every leafy oak, wherever they offered pleasing aroma to all their idols. 
 
 ###### 14 
-And I will stretch out my hand against them and make the land desolate and waste, in all their dwelling places, from the wilderness to Riblah. Then they will know that I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will stretch out my hand against them and make the land desolate and waste, in all their dwelling places, from the wilderness to Riblah. Then they will know that I am the LORD." 
 
 ***
 

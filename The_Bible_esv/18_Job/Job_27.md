@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Job again took up his discourse, and said: 
 
@@ -72,7 +71,7 @@ The east wind lifts him up and he is gone; it sweeps him out of his place.
 It hurls at him without pity; he flees from its power in headlong flight. 
 
 ###### 23 
-It claps its hands at him and hisses at him from its place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+It claps its hands at him and hisses at him from its place. 
 
 ***
 

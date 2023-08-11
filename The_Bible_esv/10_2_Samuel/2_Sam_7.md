@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the king lived in his house and the LORD had given him rest from all his surrounding enemies, 
 
@@ -90,7 +89,7 @@ For you, O LORD of hosts, the God of Israel, have made this revelation to your s
 And now, O Lord God, you are God, and your words are true, and you have promised this good thing to your servant. 
 
 ###### 29 
-Now therefore may it please you to bless the house of your servant, so that it may continue forever before you. For you, O Lord God, have spoken, and with your blessing shall the house of your servant be blessed forever." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now therefore may it please you to bless the house of your servant, so that it may continue forever before you. For you, O Lord God, have spoken, and with your blessing shall the house of your servant be blessed forever." 
 
 ***
 

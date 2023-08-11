@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Jacob lived in the land of his father's sojournings, in the land of Canaan. 
 
@@ -111,7 +110,7 @@ Then Jacob tore his garments and put sackcloth on his loins and mourned for his 
 All his sons and all his daughters rose up to comfort him, but he refused to be comforted and said, "No, I shall go down to Sheol to my son, mourning." Thus his father wept for him. 
 
 ###### 36 
-Meanwhile the Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh, the captain of the guard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Meanwhile the Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh, the captain of the guard. 
 
 ***
 

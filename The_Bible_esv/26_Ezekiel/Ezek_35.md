@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -48,7 +47,7 @@ And you magnified yourselves against me with your mouth, and multiplied your wor
 Thus says the Lord God: While the whole earth rejoices, I will make you desolate. 
 
 ###### 15 
-As you rejoiced over the inheritance of the house of Israel, because it was desolate, so I will deal with you; you shall be desolate, Mount Seir, and all Edom, all of it. Then they will know that I am the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+As you rejoiced over the inheritance of the house of Israel, because it was desolate, so I will deal with you; you shall be desolate, Mount Seir, and all Edom, all of it. Then they will know that I am the LORD. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Again I lifted my eyes and saw, and behold, a flying scroll! 
 
@@ -36,7 +35,7 @@ Then I lifted my eyes and saw, and behold, two women coming forward! The wind wa
 Then I said to the angel who talked with me, "Where are they taking the basket?" 
 
 ###### 11 
-He said to me, "To the land of Shinar, to build a house for it. And when this is prepared, they will set the basket down there on its base." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He said to me, "To the land of Shinar, to build a house for it. And when this is prepared, they will set the basket down there on its base." 
 
 ***
 

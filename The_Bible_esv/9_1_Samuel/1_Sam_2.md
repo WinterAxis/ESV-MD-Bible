@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Hannah prayed and said, "My heart exults in the LORD; my horn is exalted in the LORD. My mouth derides my enemies, because I rejoice in your salvation. 
 
@@ -111,7 +110,7 @@ And this that shall come upon your two sons, Hophni and Phinehas, shall be the s
 And I will raise up for myself a faithful priest, who shall do according to what is in my heart and in my mind. And I will build him a sure house, and he shall go in and out before my anointed forever. 
 
 ###### 36 
-And everyone who is left in your house shall come to implore him for a piece of silver or a loaf of bread and shall say, "Please put me in one of the priests' places, that I may eat a morsel of bread."'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And everyone who is left in your house shall come to implore him for a piece of silver or a loaf of bread and shall say, "Please put me in one of the priests' places, that I may eat a morsel of bread."'" 
 
 ***
 

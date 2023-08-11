@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now King David was old and advanced in years. And although they covered him with clothes, he could not get warm. 
 
@@ -162,7 +161,7 @@ Then it was told Solomon, "Behold, Adonijah fears King Solomon, for behold, he h
 And Solomon said, "If he will show himself a worthy man, not one of his hairs shall fall to the earth, but if wickedness is found in him, he shall die." 
 
 ###### 53 
-So King Solomon sent, and they brought him down from the altar. And he came and paid homage to King Solomon, and Solomon said to him, "Go to your house." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So King Solomon sent, and they brought him down from the altar. And he came and paid homage to King Solomon, and Solomon said to him, "Go to your house." 
 
 ***
 

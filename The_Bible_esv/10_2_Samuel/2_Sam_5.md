@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then all the tribes of Israel came to David at Hebron and said, "Behold, we are your bone and flesh. 
 
@@ -78,7 +77,7 @@ And when David inquired of the LORD, he said, "You shall not go up; go around to
 And when you hear the sound of marching in the tops of the balsam trees, then rouse yourself, for then the LORD has gone out before you to strike down the army of the Philistines." 
 
 ###### 25 
-And David did as the LORD commanded him, and struck down the Philistines from Geba to Gezer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And David did as the LORD commanded him, and struck down the Philistines from Geba to Gezer. 
 
 ***
 

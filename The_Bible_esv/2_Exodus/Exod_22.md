@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If a man steals an ox or a sheep, and kills it or sells it, he shall repay five oxen for an ox, and four sheep for a sheep. 
 
@@ -96,7 +95,7 @@ for that is his only covering, and it is his cloak for his body; in what else sh
 You shall do the same with your oxen and with your sheep: seven days it shall be with its mother; on the eighth day you shall give it to me. 
 
 ###### 31 
-"You shall be consecrated to me. Therefore you shall not eat any flesh that is torn by beasts in the field; you shall throw it to the dogs. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"You shall be consecrated to me. Therefore you shall not eat any flesh that is torn by beasts in the field; you shall throw it to the dogs. 
 
 ***
 

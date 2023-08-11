@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Woe to the bloody city, all full of lies and plunder-- no end to the prey! 
 
@@ -60,7 +59,7 @@ Your princes are like grasshoppers, your scribes like clouds of locusts settling
 Your shepherds are asleep, O king of Assyria; your nobles slumber. Your people are scattered on the mountains with none to gather them. 
 
 ###### 19 
-There is no easing your hurt; your wound is grievous. All who hear the news about you clap their hands over you. For upon whom has not come your unceasing evil? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+There is no easing your hurt; your wound is grievous. All who hear the news about you clap their hands over you. For upon whom has not come your unceasing evil? 
 
 ***
 

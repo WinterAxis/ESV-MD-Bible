@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "I have said all these things to you to keep you from falling away. 
 
@@ -102,7 +101,7 @@ Jesus answered them, **"Do you now believe?**
 Behold, the hour is coming, indeed it has come, when you will be scattered, each to his own home, and will leave me alone. Yet I am not alone, for the Father is with me. 
 
 ###### 33 
-I have said these things to you, that in me you may have peace. In the world you will have tribulation. But take heart; I have overcome the world." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I have said these things to you, that in me you may have peace. In the world you will have tribulation. But take heart; I have overcome the world." 
 
 ***
 

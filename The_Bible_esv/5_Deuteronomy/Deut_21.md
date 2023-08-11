@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If in the land that the LORD your God is giving you to possess someone is found slain, lying in the open country, and it is not known who killed him, 
 
@@ -72,7 +71,7 @@ Then all the men of the city shall stone him to death with stones. So you shall 
 "And if a man has committed a crime punishable by death and he is put to death, and you hang him on a tree, 
 
 ###### 23 
-his body shall not remain all night on the tree, but you shall bury him the same day, for a hanged man is cursed by God. You shall not defile your land that the LORD your God is giving you for an inheritance. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+his body shall not remain all night on the tree, but you shall bury him the same day, for a hanged man is cursed by God. You shall not defile your land that the LORD your God is giving you for an inheritance. 
 
 ***
 

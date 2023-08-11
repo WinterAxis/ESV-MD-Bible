@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Let not your hearts be troubled. Believe in God; believe also in me. 
 
@@ -96,7 +95,7 @@ And now I have told you before it takes place, so that when it does take place y
 I will no longer talk much with you, for the ruler of this world is coming. He has no claim on me, 
 
 ###### 31 
-but I do as the Father has commanded me, so that the world may know that I love the Father. Rise, let us go from here. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but I do as the Father has commanded me, so that the world may know that I love the Father. Rise, let us go from here. 
 
 ***
 

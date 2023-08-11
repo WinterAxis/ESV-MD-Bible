@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On that night the king could not sleep. And he gave orders to bring the book of memorable deeds, the chronicles, and they were read before the king. 
 
@@ -45,7 +44,7 @@ Then Mordecai returned to the king's gate. But Haman hurried to his house, mourn
 And Haman told his wife Zeresh and all his friends everything that had happened to him. Then his wise men and his wife Zeresh said to him, "If Mordecai, before whom you have begun to fall, is of the Jewish people, you will not overcome him but will surely fall before him." ## Esther Reveals Haman's Plot 
 
 ###### 14 
-While they were yet talking with him, the king's eunuchs arrived and hurried to bring Haman to the feast that Esther had prepared. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+While they were yet talking with him, the king's eunuchs arrived and hurried to bring Haman to the feast that Esther had prepared. 
 
 ***
 

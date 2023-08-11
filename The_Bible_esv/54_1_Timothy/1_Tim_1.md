@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, an apostle of Christ Jesus by command of God our Savior and of Christ Jesus our hope, 
 
@@ -63,7 +62,7 @@ This charge I entrust to you, Timothy, my child, in accordance with the propheci
 holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, 
 
 ###### 20 
-among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. 
 
 ***
 

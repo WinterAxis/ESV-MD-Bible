@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "But now hear, O Jacob my servant, Israel whom I have chosen! 
 
@@ -87,7 +86,7 @@ who confirms the word of his servant and fulfills the counsel of his messengers,
 who says to the deep, 'Be dry; I will dry up your rivers'; 
 
 ###### 28 
-who says of Cyrus, 'He is my shepherd, and he shall fulfill all my purpose'; saying of Jerusalem, 'She shall be built,' and of the temple, 'Your foundation shall be laid.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+who says of Cyrus, 'He is my shepherd, and he shall fulfill all my purpose'; saying of Jerusalem, 'She shall be built,' and of the temple, 'Your foundation shall be laid.'" 
 
 ***
 

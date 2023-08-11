@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now in these days when the disciples were increasing in number, a complaint by the Hellenists arose against the Hebrews because their widows were being neglected in the daily distribution. 
 
@@ -48,7 +47,7 @@ and they set up false witnesses who said, "This man never ceases to speak words 
 for we have heard him say that this Jesus of Nazareth will destroy this place and will change the customs that Moses delivered to us." 
 
 ###### 15 
-And gazing at him, all who sat in the council saw that his face was like the face of an angel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And gazing at him, all who sat in the council saw that his face was like the face of an angel. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And I said: Hear, you heads of Jacob and rulers of the house of Israel! Is it not for you to know justice?-- 
 
@@ -39,7 +38,7 @@ who build Zion with blood and Jerusalem with iniquity.
 Its heads give judgment for a bribe; its priests teach for a price; its prophets practice divination for money; yet they lean on the LORD and say, "Is not the LORD in the midst of us? No disaster shall come upon us." 
 
 ###### 12 
-Therefore because of you Zion shall be plowed as a field; Jerusalem shall become a heap of ruins, and the mountain of the house a wooded height. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore because of you Zion shall be plowed as a field; Jerusalem shall become a heap of ruins, and the mountain of the house a wooded height. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The ark of the LORD was in the country of the Philistines seven months. 
 
@@ -66,7 +65,7 @@ And he struck some of the men of Beth-shemesh, because they looked upon the ark 
 Then the men of Beth-shemesh said, "Who is able to stand before the LORD, this holy God? And to whom shall he go up away from us?" 
 
 ###### 21 
-So they sent messengers to the inhabitants of Kiriath-jearim, saying, "The Philistines have returned the ark of the LORD. Come down and take it up to you." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they sent messengers to the inhabitants of Kiriath-jearim, saying, "The Philistines have returned the ark of the LORD. Come down and take it up to you." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the first year of Darius the son of Ahasuerus, by descent a Mede, who was made king over the realm of the Chaldeans-- 
 
@@ -84,7 +83,7 @@ Know therefore and understand that from the going out of the word to restore and
 And after the sixty-two weeks, an anointed one shall be cut off and shall have nothing. And the people of the prince who is to come shall destroy the city and the sanctuary. Its end shall come with a flood, and to the end there shall be war. Desolations are decreed. 
 
 ###### 27 
-And he shall make a strong covenant with many for one week, and for half of the week he shall put an end to sacrifice and offering. And on the wing of abominations shall come one who makes desolate, until the decreed end is poured out on the desolator." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he shall make a strong covenant with many for one week, and for half of the week he shall put an end to sacrifice and offering. And on the wing of abominations shall come one who makes desolate, until the decreed end is poured out on the desolator." 
 
 ***
 

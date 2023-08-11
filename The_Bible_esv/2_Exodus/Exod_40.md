@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -117,7 +116,7 @@ Throughout all their journeys, whenever the cloud was taken up from over the tab
 But if the cloud was not taken up, then they did not set out till the day that it was taken up. 
 
 ###### 38 
-For the cloud of the LORD was on the tabernacle by day, and fire was in it by night, in the sight of all the house of Israel throughout all their journeys. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the cloud of the LORD was on the tabernacle by day, and fire was in it by night, in the sight of all the house of Israel throughout all their journeys. 
 
 ***
 

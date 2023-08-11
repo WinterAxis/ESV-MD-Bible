@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the seventh month, Ishmael the son of Nethaniah, son of Elishama, of the royal family, one of the chief officers of the king, came with ten men to Gedaliah the son of Ahikam, at Mizpah. As they ate bread together there at Mizpah, 
 
@@ -57,7 +56,7 @@ Then Johanan the son of Kareah and all the leaders of the forces with him took f
 And they went and stayed at Geruth Chimham near Bethlehem, intending to go to Egypt 
 
 ###### 18 
-because of the Chaldeans. For they were afraid of them, because Ishmael the son of Nethaniah had struck down Gedaliah the son of Ahikam, whom the king of Babylon had made governor over the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+because of the Chaldeans. For they were afraid of them, because Ishmael the son of Nethaniah had struck down Gedaliah the son of Ahikam, whom the king of Babylon had made governor over the land. 
 
 ***
 

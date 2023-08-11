@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Balaam saw that it pleased the LORD to bless Israel, he did not go, as at other times, to look for omens, but set his face toward the wilderness. 
 
@@ -78,7 +77,7 @@ And he took up his discourse and said, "Alas, who shall live when God does this?
 But ships shall come from Kittim and shall afflict Asshur and Eber; and he too shall come to utter destruction." 
 
 ###### 25 
-Then Balaam rose and went back to his place. And Balak also went his way. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Balaam rose and went back to his place. And Balak also went his way. 
 
 ***
 

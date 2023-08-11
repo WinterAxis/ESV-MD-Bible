@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After the uproar ceased, Paul sent for the disciples, and after encouraging them, he said farewell and departed for Macedonia. 
 
@@ -117,7 +116,7 @@ And when he had said these things, he knelt down and prayed with them all.
 And there was much weeping on the part of all; they embraced Paul and kissed him, 
 
 ###### 38 
-being sorrowful most of all because of the word he had spoken, that they would not see his face again. And they accompanied him to the ship. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+being sorrowful most of all because of the word he had spoken, that they would not see his face again. And they accompanied him to the ship. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he brought me back to the door of the temple, and behold, water was issuing from below the threshold of the temple toward the east (for the temple faced east). The water was flowing down from below the south end of the threshold of the temple, south of the altar. 
 
@@ -72,7 +71,7 @@ So the boundary shall run from the sea to Hazar-enan, which is on the northern b
 You shall allot it as an inheritance for yourselves and for the sojourners who reside among you and have had children among you. They shall be to you as native-born children of Israel. With you they shall be allotted an inheritance among the tribes of Israel. 
 
 ###### 23 
-In whatever tribe the sojourner resides, there you shall assign him his inheritance, declares the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In whatever tribe the sojourner resides, there you shall assign him his inheritance, declares the Lord God. 
 
 ***
 

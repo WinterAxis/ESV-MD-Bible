@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this Jesus went away to the other side of the Sea of Galilee, which is the Sea of Tiberias. 
 
@@ -216,7 +215,7 @@ and we have believed, and have come to know, that you are the Holy One of God."
 Jesus answered them, **"Did I not choose you, the twelve? And yet one of you is a devil."** 
 
 ###### 71 
-He spoke of Judas the son of Simon Iscariot, for he, one of the twelve, was going to betray him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He spoke of Judas the son of Simon Iscariot, for he, one of the twelve, was going to betray him. 
 
 ***
 

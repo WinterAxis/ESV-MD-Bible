@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he called to him his twelve disciples and gave them authority over unclean spirits, to cast them out, and to heal every disease and every affliction. 
 
@@ -129,7 +128,7 @@ Whoever finds his life will lose it, and whoever loses his life for my sake will
 The one who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a righteous person because he is a righteous person will receive a righteous person's reward. 
 
 ###### 42 
-And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward." 
 
 ***
 

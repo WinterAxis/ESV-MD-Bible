@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Behold, you are beautiful, my love, behold, you are beautiful! Your eyes are doves behind your veil. Your hair is like a flock of goats leaping down the slopes of Gilead. 
 
@@ -51,7 +50,7 @@ nard and saffron, calamus and cinnamon, with all trees of frankincense, myrrh an
 a garden fountain, a well of living water, and flowing streams from Lebanon. 
 
 ###### 16 
-Awake, O north wind, and come, O south wind! Blow upon my garden, let its spices flow. ## Together in the Garden of Love Let my beloved come to his garden, and eat its choicest fruits. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Awake, O north wind, and come, O south wind! Blow upon my garden, let its spices flow. ## Together in the Garden of Love Let my beloved come to his garden, and eat its choicest fruits. 
 
 ***
 

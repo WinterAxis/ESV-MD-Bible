@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the LORD said to Moses, "Go in to Pharaoh and say to him, 'Thus says the LORD, the God of the Hebrews, "Let my people go, that they may serve me. 
 
@@ -108,7 +107,7 @@ So Moses went out of the city from Pharaoh and stretched out his hands to the LO
 But when Pharaoh saw that the rain and the hail and the thunder had ceased, he sinned yet again and hardened his heart, he and his servants. 
 
 ###### 35 
-So the heart of Pharaoh was hardened, and he did not let the people of Israel go, just as the LORD had spoken through Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the heart of Pharaoh was hardened, and he did not let the people of Israel go, just as the LORD had spoken through Moses. 
 
 ***
 

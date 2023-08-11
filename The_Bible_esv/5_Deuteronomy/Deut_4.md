@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And now, O Israel, listen to the statutes and the rules that I am teaching you, and do them, that you may live, and go in and take possession of the land that the LORD, the God of your fathers, is giving you. 
 
@@ -150,7 +149,7 @@ And they took possession of his land and the land of Og, the king of Bashan, the
 from Aroer, which is on the edge of the Valley of the Arnon, as far as Mount Sirion (that is, Hermon), 
 
 ###### 49 
-together with all the Arabah on the east side of the Jordan as far as the Sea of the Arabah, under the slopes of Pisgah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+together with all the Arabah on the east side of the Jordan as far as the Sea of the Arabah, under the slopes of Pisgah. 
 
 ***
 

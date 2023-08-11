@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Again I saw all the oppressions that are done under the sun. And behold, the tears of the oppressed, and they had no one to comfort them! On the side of their oppressors there was power, and there was no one to comfort them. 
 
@@ -51,7 +50,7 @@ For he went from prison to the throne, though in his own kingdom he had been bor
 I saw all the living who move about under the sun, along with that youth who was to stand in the king's place. 
 
 ###### 16 
-There was no end of all the people, all of whom he led. Yet those who come later will not rejoice in him. Surely this also is vanity and a striving after wind. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+There was no end of all the people, all of whom he led. Yet those who come later will not rejoice in him. Surely this also is vanity and a striving after wind. 
 
 ***
 

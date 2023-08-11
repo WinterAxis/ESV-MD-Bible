@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After these things, when the anger of King Ahasuerus had abated, he remembered Vashti and what she had done and what had been decreed against her. 
 
@@ -72,7 +71,7 @@ In those days, as Mordecai was sitting at the king's gate, Bigthan and Teresh, t
 And this came to the knowledge of Mordecai, and he told it to Queen Esther, and Esther told the king in the name of Mordecai. 
 
 ###### 23 
-When the affair was investigated and found to be so, the men were both hanged on the gallows. And it was recorded in the book of the chronicles in the presence of the king. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+When the affair was investigated and found to be so, the men were both hanged on the gallows. And it was recorded in the book of the chronicles in the presence of the king. 
 
 ***
 

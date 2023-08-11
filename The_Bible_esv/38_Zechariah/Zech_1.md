@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the eighth month, in the second year of Darius, the word of the LORD came to the prophet Zechariah, the son of Berechiah, son of Iddo, saying, 
 
@@ -66,7 +65,7 @@ And I said to the angel who talked with me, "What are these?" And he said to me,
 Then the LORD showed me four craftsmen. 
 
 ###### 21 
-And I said, "What are these coming to do?" He said, "These are the horns that scattered Judah, so that no one raised his head. And these have come to terrify them, to cast down the horns of the nations who lifted up their horns against the land of Judah to scatter it." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I said, "What are these coming to do?" He said, "These are the horns that scattered Judah, so that no one raised his head. And these have come to terrify them, to cast down the horns of the nations who lifted up their horns against the land of Judah to scatter it." 
 
 ***
 

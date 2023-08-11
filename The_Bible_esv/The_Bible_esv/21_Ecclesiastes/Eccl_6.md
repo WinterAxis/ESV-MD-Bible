@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There is an evil that I have seen under the sun, and it lies heavy on mankind: 
 
@@ -39,7 +38,7 @@ Whatever has come to be has already been named, and it is known what man is, and
 The more words, the more vanity, and what is the advantage to man? 
 
 ###### 12 
-For who knows what is good for man while he lives the few days of his vain life, which he passes like a shadow? For who can tell man what will be after him under the sun? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For who knows what is good for man while he lives the few days of his vain life, which he passes like a shadow? For who can tell man what will be after him under the sun? 
 
 ***
 

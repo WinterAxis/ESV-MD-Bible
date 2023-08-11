@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 James, a servant of God and of the Lord Jesus Christ, To the twelve tribes in the Dispersion: Greetings. ## Testing of Your Faith 
 
@@ -84,7 +83,7 @@ But the one who looks into the perfect law, the law of liberty, and perseveres, 
 If anyone thinks he is religious and does not bridle his tongue but deceives his heart, this person's religion is worthless. 
 
 ###### 27 
-Religion that is pure and undefiled before God the Father is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Religion that is pure and undefiled before God the Father is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world. 
 
 ***
 

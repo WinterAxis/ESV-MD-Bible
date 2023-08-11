@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Bezalel made the ark of acacia wood. Two cubits and a half was its length, a cubit and a half its breadth, and a cubit and a half its height. 
 
@@ -90,7 +89,7 @@ and made two rings of gold on it under its molding, on two opposite sides of it,
 And he made the poles of acacia wood and overlaid them with gold. 
 
 ###### 29 
-He made the holy anointing oil also, and the pure fragrant incense, blended as by the perfumer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He made the holy anointing oil also, and the pure fragrant incense, blended as by the perfumer. 
 
 ***
 

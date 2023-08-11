@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the whole earth had one language and the same words. 
 
@@ -99,7 +98,7 @@ Now Sarai was barren; she had no child.
 Terah took Abram his son and Lot the son of Haran, his grandson, and Sarai his daughter-in-law, his son Abram's wife, and they went forth together from Ur of the Chaldeans to go into the land of Canaan, but when they came to Haran, they settled there. 
 
 ###### 32 
-The days of Terah were 205 years, and Terah died in Haran. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The days of Terah were 205 years, and Terah died in Haran. 
 
 ***
 

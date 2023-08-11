@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now three days after Festus had arrived in the province, he went up to Jerusalem from Caesarea. 
 
@@ -84,7 +83,7 @@ But I found that he had done nothing deserving death. And as he himself appealed
 But I have nothing definite to write to my lord about him. Therefore I have brought him before you all, and especially before you, King Agrippa, so that, after we have examined him, I may have something to write. 
 
 ###### 27 
-For it seems to me unreasonable, in sending a prisoner, not to indicate the charges against him." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For it seems to me unreasonable, in sending a prisoner, not to indicate the charges against him." 
 
 ***
 

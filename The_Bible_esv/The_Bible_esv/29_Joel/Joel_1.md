@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Joel, the son of Pethuel: ## An Invasion of Locusts 
 
@@ -63,7 +62,7 @@ How the beasts groan! The herds of cattle are perplexed because there is no past
 To you, O LORD, I call. For fire has devoured the pastures of the wilderness, and flame has burned all the trees of the field. 
 
 ###### 20 
-Even the beasts of the field pant for you because the water brooks are dried up, and fire has devoured the pastures of the wilderness. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Even the beasts of the field pant for you because the water brooks are dried up, and fire has devoured the pastures of the wilderness. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD said to Moses and Aaron in the land of Egypt, 
 
@@ -156,7 +155,7 @@ There shall be one law for the native and for the stranger who sojourns among yo
 All the people of Israel did just as the LORD commanded Moses and Aaron. 
 
 ###### 51 
-And on that very day the LORD brought the people of Israel out of the land of Egypt by their hosts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And on that very day the LORD brought the people of Israel out of the land of Egypt by their hosts. 
 
 ***
 

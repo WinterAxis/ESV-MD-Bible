@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The king's heart is a stream of water in the hand of the LORD; he turns it wherever he will. 
 
@@ -96,7 +95,7 @@ A wicked man puts on a bold face, but the upright gives thought to his ways.
 No wisdom, no understanding, no counsel can avail against the LORD. 
 
 ###### 31 
-The horse is made ready for the day of battle, but the victory belongs to the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The horse is made ready for the day of battle, but the victory belongs to the LORD. 
 
 ***
 

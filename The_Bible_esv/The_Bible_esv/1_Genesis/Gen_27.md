@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Isaac was old and his eyes were dim so that he could not see, he called Esau his older son and said to him, "My son"; and he answered, "Here I am." 
 
@@ -141,7 +140,7 @@ and stay with him a while, until your brother's fury turns away--
 until your brother's anger turns away from you, and he forgets what you have done to him. Then I will send and bring you from there. Why should I be bereft of you both in one day?" 
 
 ###### 46 
-Then Rebekah said to Isaac, "I loathe my life because of the Hittite women. If Jacob marries one of the Hittite women like these, one of the women of the land, what good will my life be to me?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Rebekah said to Isaac, "I loathe my life because of the Hittite women. If Jacob marries one of the Hittite women like these, one of the women of the land, what good will my life be to me?" 
 
 ***
 

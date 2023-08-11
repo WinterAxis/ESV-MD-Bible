@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I came to my garden, my sister, my bride, I gathered my myrrh with my spice, I ate my honeycomb with my honey, I drank my wine with my milk. Eat, friends, drink, and be drunk with love! ## The Bride Searches for Her Beloved 
 
@@ -51,7 +50,7 @@ His arms are rods of gold, set with jewels. His body is polished ivory, bedecked
 His legs are alabaster columns, set on bases of gold. His appearance is like Lebanon, choice as the cedars. 
 
 ###### 16 
-His mouth is most sweet, and he is altogether desirable. This is my beloved and this is my friend, O daughters of Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+His mouth is most sweet, and he is altogether desirable. This is my beloved and this is my friend, O daughters of Jerusalem. 
 
 ***
 

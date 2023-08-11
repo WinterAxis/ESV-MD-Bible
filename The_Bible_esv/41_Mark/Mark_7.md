@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the Pharisees gathered to him, with some of the scribes who had come from Jerusalem, 
 
@@ -111,7 +110,7 @@ And his ears were opened, his tongue was released, and he spoke plainly.
 And Jesus charged them to tell no one. But the more he charged them, the more zealously they proclaimed it. 
 
 ###### 37 
-And they were astonished beyond measure, saying, "He has done all things well. He even makes the deaf hear and the mute speak." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they were astonished beyond measure, saying, "He has done all things well. He even makes the deaf hear and the mute speak." 
 
 ***
 

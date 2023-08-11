@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the word of the LORD of hosts came, saying, 
 
@@ -72,7 +71,7 @@ The inhabitants of one city shall go to another, saying, 'Let us go at once to e
 Many peoples and strong nations shall come to seek the LORD of hosts in Jerusalem and to entreat the favor of the LORD. 
 
 ###### 23 
-Thus says the LORD of hosts: In those days ten men from the nations of every tongue shall take hold of the robe of a Jew, saying, 'Let us go with you, for we have heard that God is with you.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus says the LORD of hosts: In those days ten men from the nations of every tongue shall take hold of the robe of a Jew, saying, 'Let us go with you, for we have heard that God is with you.'" 
 
 ***
 

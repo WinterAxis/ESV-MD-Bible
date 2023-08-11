@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then I looked, and behold, on the expanse that was over the heads of the cherubim there appeared above them something like a sapphire, in appearance like a throne. 
 
@@ -69,7 +68,7 @@ These were the living creatures that I saw underneath the God of Israel by the C
 Each had four faces, and each four wings, and underneath their wings the likeness of human hands. 
 
 ###### 22 
-And as for the likeness of their faces, they were the same faces whose appearance I had seen by the Chebar canal. Each one of them went straight forward. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And as for the likeness of their faces, they were the same faces whose appearance I had seen by the Chebar canal. Each one of them went straight forward. 
 
 ***
 

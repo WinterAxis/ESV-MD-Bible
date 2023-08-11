@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "These are the statutes and rules that you shall be careful to do in the land that the LORD, the God of your fathers, has given you to possess, all the days that you live on the earth. 
 
@@ -99,7 +98,7 @@ take care that you be not ensnared to follow them, after they have been destroye
 You shall not worship the LORD your God in that way, for every abominable thing that the LORD hates they have done for their gods, for they even burn their sons and their daughters in the fire to their gods. 
 
 ###### 32 
-"Everything that I command you, you shall be careful to do. You shall not add to it or take from it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Everything that I command you, you shall be careful to do. You shall not add to it or take from it. 
 
 ***
 

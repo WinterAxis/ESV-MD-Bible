@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Jesus left the temple and was going away, when his disciples came to point out to him the buildings of the temple. 
 
@@ -156,7 +155,7 @@ and begins to beat his fellow servants and eats and drinks with drunkards,
 the master of that servant will come on a day when he does not expect him and at an hour he does not know 
 
 ###### 51 
-and will cut him in pieces and put him with the hypocrites. In that place there will be weeping and gnashing of teeth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and will cut him in pieces and put him with the hypocrites. In that place there will be weeping and gnashing of teeth. 
 
 ***
 

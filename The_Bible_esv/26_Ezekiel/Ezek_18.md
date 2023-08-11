@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -99,7 +98,7 @@ Yet the house of Israel says, 'The way of the Lord is not just.' O house of Isra
 Cast away from you all the transgressions that you have committed, and make yourselves a new heart and a new spirit! Why will you die, O house of Israel? 
 
 ###### 32 
-For I have no pleasure in the death of anyone, declares the Lord God; so turn, and live." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For I have no pleasure in the death of anyone, declares the Lord God; so turn, and live." 
 
 ***
 

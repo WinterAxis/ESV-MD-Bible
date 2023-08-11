@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I am a rose of Sharon, a lily of the valleys. 
 
@@ -54,7 +53,7 @@ Catch the foxes for us, the little foxes that spoil the vineyards, for our viney
 My beloved is mine, and I am his; he grazes among the lilies. 
 
 ###### 17 
-Until the day breathes and the shadows flee, turn, my beloved, be like a gazelle or a young stag on cleft mountains. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Until the day breathes and the shadows flee, turn, my beloved, be like a gazelle or a young stag on cleft mountains. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Behold, the LORD's hand is not shortened, that it cannot save, or his ear dull, that it cannot hear; 
 
@@ -66,7 +65,7 @@ So they shall fear the name of the LORD from the west, and his glory from the ri
 "And a Redeemer will come to Zion, to those in Jacob who turn from transgression," declares the LORD. 
 
 ###### 21 
-"And as for me, this is my covenant with them," says the LORD: "My Spirit that is upon you, and my words that I have put in your mouth, shall not depart out of your mouth, or out of the mouth of your offspring, or out of the mouth of your children's offspring," says the LORD, "from this time forth and forevermore." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"And as for me, this is my covenant with them," says the LORD: "My Spirit that is upon you, and my words that I have put in your mouth, shall not depart out of your mouth, or out of the mouth of your offspring, or out of the mouth of your children's offspring," says the LORD, "from this time forth and forevermore." 
 
 ***
 

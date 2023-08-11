@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the men of Kiriath-jearim came and took up the ark of the LORD and brought it to the house of Abinadab on the hill. And they consecrated his son Eleazar to have charge of the ark of the LORD. 
 
@@ -54,7 +53,7 @@ Samuel judged Israel all the days of his life.
 And he went on a circuit year by year to Bethel, Gilgal, and Mizpah. And he judged Israel in all these places. 
 
 ###### 17 
-Then he would return to Ramah, for his home was there, and there also he judged Israel. And he built there an altar to the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then he would return to Ramah, for his home was there, and there also he judged Israel. And he built there an altar to the LORD. 
 
 ***
 

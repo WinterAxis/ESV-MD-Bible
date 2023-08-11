@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the whole company of them arose and brought him before Pilate. 
 
@@ -168,7 +167,7 @@ It was the day of Preparation, and the Sabbath was beginning.
 The women who had come with him from Galilee followed and saw the tomb and how his body was laid. 
 
 ###### 56 
-Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. 
 
 ***
 

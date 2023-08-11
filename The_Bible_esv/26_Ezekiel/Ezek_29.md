@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the tenth year, in the tenth month, on the twelfth day of the month, the word of the LORD came to me: 
 
@@ -66,7 +65,7 @@ Therefore thus says the Lord God: Behold, I will give the land of Egypt to Nebuc
 I have given him the land of Egypt as his payment for which he labored, because they worked for me, declares the Lord God. 
 
 ###### 21 
-"On that day I will cause a horn to spring up for the house of Israel, and I will open your lips among them. Then they will know that I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"On that day I will cause a horn to spring up for the house of Israel, and I will open your lips among them. Then they will know that I am the LORD." 
 
 ***
 

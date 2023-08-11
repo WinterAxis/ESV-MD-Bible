@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now there was a famine in the land, besides the former famine that was in the days of Abraham. And Isaac went to Gerar to Abimelech king of the Philistines. 
 
@@ -108,7 +107,7 @@ He called it Shibah; therefore the name of the city is Beersheba to this day.
 When Esau was forty years old, he took Judith the daughter of Beeri the Hittite to be his wife, and Basemath the daughter of Elon the Hittite, 
 
 ###### 35 
-and they made life bitter for Isaac and Rebekah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and they made life bitter for Isaac and Rebekah. 
 
 ***
 

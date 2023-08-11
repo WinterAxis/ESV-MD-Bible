@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But all this I laid to heart, examining it all, how the righteous and the wise and their deeds are in the hand of God. Whether it is love or hate, man does not know; both are before him. 
 
@@ -57,7 +56,7 @@ But I say that wisdom is better than might, though the poor man's wisdom is desp
 The words of the wise heard in quiet are better than the shouting of a ruler among fools. 
 
 ###### 18 
-Wisdom is better than weapons of war, but one sinner destroys much good. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Wisdom is better than weapons of war, but one sinner destroys much good. 
 
 ***
 

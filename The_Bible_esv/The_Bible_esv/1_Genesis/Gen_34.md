@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Dinah the daughter of Leah, whom she had borne to Jacob, went out to see the women of the land. 
 
@@ -96,7 +95,7 @@ All their wealth, all their little ones and their wives, all that was in the hou
 Then Jacob said to Simeon and Levi, "You have brought trouble on me by making me stink to the inhabitants of the land, the Canaanites and the Perizzites. My numbers are few, and if they gather themselves against me and attack me, I shall be destroyed, both I and my household." 
 
 ###### 31 
-But they said, "Should he treat our sister like a prostitute?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But they said, "Should he treat our sister like a prostitute?" 
 
 ***
 

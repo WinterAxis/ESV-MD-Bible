@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 All the congregation of the people of Israel moved on from the wilderness of Sin by stages, according to the commandment of the LORD, and camped at Rephidim, but there was no water for the people to drink. 
 
@@ -51,7 +50,7 @@ Then the LORD said to Moses, "Write this as a memorial in a book and recite it i
 And Moses built an altar and called the name of it, The LORD Is My Banner, 
 
 ###### 16 
-saying, "A hand upon the throne of the LORD! The LORD will have war with Amalek from generation to generation." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+saying, "A hand upon the throne of the LORD! The LORD will have war with Amalek from generation to generation." 
 
 ***
 

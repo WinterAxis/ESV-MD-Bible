@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But Saul, still breathing threats and murder against the disciples of the Lord, went to the high priest 
 
@@ -132,7 +131,7 @@ And he gave her his hand and raised her up. Then, calling the saints and widows,
 And it became known throughout all Joppa, and many believed in the Lord. 
 
 ###### 43 
-And he stayed in Joppa for many days with one Simon, a tanner. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he stayed in Joppa for many days with one Simon, a tanner. 
 
 ***
 

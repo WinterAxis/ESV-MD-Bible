@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Do you know when the mountain goats give birth? Do you observe the calving of the does? 
 
@@ -93,7 +92,7 @@ On the rock he dwells and makes his home, on the rocky crag and stronghold.
 From there he spies out the prey; his eyes behold it from far away. 
 
 ###### 30 
-His young ones suck up blood, and where the slain are, there is he." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+His young ones suck up blood, and where the slain are, there is he." 
 
 ***
 

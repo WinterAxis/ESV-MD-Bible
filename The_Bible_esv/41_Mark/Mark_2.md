@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And when he returned to Capernaum after some days, it was reported that he was at home. 
 
@@ -87,7 +86,7 @@ how he entered the house of God, in the time of Abiathar the high priest, and at
 And he said to them, **"The Sabbath was made for man, not man for the Sabbath.** 
 
 ###### 28 
-So the Son of Man is lord even of the Sabbath." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the Son of Man is lord even of the Sabbath." 
 
 ***
 

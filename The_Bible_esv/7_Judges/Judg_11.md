@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Jephthah the Gileadite was a mighty warrior, but he was the son of a prostitute. Gilead was the father of Jephthah. 
 
@@ -123,7 +122,7 @@ So he said, "Go." Then he sent her away for two months, and she departed, she an
 And at the end of two months, she returned to her father, who did with her according to his vow that he had made. She had never known a man, and it became a custom in Israel 
 
 ###### 40 
-that the daughters of Israel went year by year to lament the daughter of Jephthah the Gileadite four days in the year. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+that the daughters of Israel went year by year to lament the daughter of Jephthah the Gileadite four days in the year. 
 
 ***
 

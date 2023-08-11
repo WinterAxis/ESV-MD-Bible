@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, 
 
@@ -48,7 +47,7 @@ For Adam was formed first, then Eve;
 and Adam was not deceived, but the woman was deceived and became a transgressor. 
 
 ###### 15 
-Yet she will be saved through childbearing--if they continue in faith and love and holiness, with self-control. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet she will be saved through childbearing--if they continue in faith and love and holiness, with self-control. 
 
 ***
 

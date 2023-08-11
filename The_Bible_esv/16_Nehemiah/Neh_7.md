@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when the wall had been built and I had set up the doors, and the gatekeepers, the singers, and the Levites had been appointed, 
 
@@ -222,7 +221,7 @@ And some of the heads of fathers' houses gave into the treasury of the work 20,0
 And what the rest of the people gave was 20,000 darics of gold, 2,000 minas of silver, and 67 priests' garments. 
 
 ###### 73 
-So the priests, the Levites, the gatekeepers, the singers, some of the people, the temple servants, and all Israel, lived in their towns. And when the seventh month had come, the people of Israel were in their towns. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the priests, the Levites, the gatekeepers, the singers, some of the people, the temple servants, and all Israel, lived in their towns. And when the seventh month had come, the people of Israel were in their towns. 
 
 ***
 

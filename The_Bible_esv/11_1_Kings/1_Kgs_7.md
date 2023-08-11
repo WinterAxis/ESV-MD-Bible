@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Solomon was building his own house thirteen years, and he finished his entire house. 
 
@@ -156,7 +155,7 @@ the lampstands of pure gold, five on the south side and five on the north, befor
 the cups, snuffers, basins, dishes for incense, and fire pans, of pure gold; and the sockets of gold, for the doors of the innermost part of the house, the Most Holy Place, and for the doors of the nave of the temple. 
 
 ###### 51 
-Thus all the work that King Solomon did on the house of the LORD was finished. And Solomon brought in the things that David his father had dedicated, the silver, the gold, and the vessels, and stored them in the treasuries of the house of the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus all the work that King Solomon did on the house of the LORD was finished. And Solomon brought in the things that David his father had dedicated, the silver, the gold, and the vessels, and stored them in the treasuries of the house of the LORD. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The elder to the elect lady and her children, whom I love in truth, and not only I, but also all who know the truth, 
 
@@ -42,7 +41,7 @@ for whoever greets him takes part in his wicked works. ## Final Greetings
 Though I have much to write to you, I would rather not use paper and ink. Instead I hope to come to you and talk face to face, so that our joy may be complete. 
 
 ###### 13 
-The children of your elect sister greet you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The children of your elect sister greet you. 
 
 ***
 

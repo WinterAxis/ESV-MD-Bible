@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After two whole years, Pharaoh dreamed that he was standing by the Nile, 
 
@@ -174,7 +173,7 @@ When all the land of Egypt was famished, the people cried to Pharaoh for bread. 
 So when the famine had spread over all the land, Joseph opened all the storehouses and sold to the Egyptians, for the famine was severe in the land of Egypt. 
 
 ###### 57 
-Moreover, all the earth came to Egypt to Joseph to buy grain, because the famine was severe over all the earth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moreover, all the earth came to Egypt to Joseph to buy grain, because the famine was severe over all the earth. 
 
 ***
 

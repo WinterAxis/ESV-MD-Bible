@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 That same day Jesus went out of the house and sat beside the sea. 
 
@@ -177,7 +176,7 @@ And are not all his sisters with us? Where then did this man get all these thing
 And they took offense at him. But Jesus said to them, **"A prophet is not without honor except in his hometown and in his own household."** 
 
 ###### 58 
-And he did not do many mighty works there, because of their unbelief. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he did not do many mighty works there, because of their unbelief. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, which is opposite Jericho. And the LORD showed him all the land, Gilead as far as Dan, 
 
@@ -39,7 +38,7 @@ And there has not arisen a prophet since in Israel like Moses, whom the LORD kne
 none like him for all the signs and the wonders that the LORD sent him to do in the land of Egypt, to Pharaoh and to all his servants and to all his land, 
 
 ###### 12 
-and for all the mighty power and all the great deeds of terror that Moses did in the sight of all Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and for all the mighty power and all the great deeds of terror that Moses did in the sight of all Israel. 
 
 ***
 

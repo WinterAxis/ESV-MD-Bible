@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And you, O son of man, take a sharp sword. Use it as a barber's razor and pass it over your head and your beard. Then take balances for weighing and divide the hair. 
 
@@ -54,7 +53,7 @@ You shall be a reproach and a taunt, a warning and a horror, to the nations all 
 when I send against you the deadly arrows of famine, arrows for destruction, which I will send to destroy you, and when I bring more and more famine upon you and break your supply of bread. 
 
 ###### 17 
-I will send famine and wild beasts against you, and they will rob you of your children. Pestilence and blood shall pass through you, and I will bring the sword upon you. I am the LORD; I have spoken." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will send famine and wild beasts against you, and they will rob you of your children. Pestilence and blood shall pass through you, and I will bring the sword upon you. I am the LORD; I have spoken." 
 
 ***
 

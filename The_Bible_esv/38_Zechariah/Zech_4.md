@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the angel who talked with me came again and woke me, like a man who is awakened out of his sleep. 
 
@@ -45,7 +44,7 @@ And a second time I answered and said to him, "What are these two branches of th
 He said to me, "Do you not know what these are?" I said, "No, my lord." 
 
 ###### 14 
-Then he said, "These are the two anointed ones who stand by the Lord of the whole earth." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then he said, "These are the two anointed ones who stand by the Lord of the whole earth." 
 
 ***
 

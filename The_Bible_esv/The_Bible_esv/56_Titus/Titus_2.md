@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But as for you, teach what accords with sound doctrine. 
 
@@ -48,7 +47,7 @@ waiting for our blessed hope, the appearing of the glory of our great God and Sa
 who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. 
 
 ###### 15 
-Declare these things; exhort and rebuke with all authority. Let no one disregard you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Declare these things; exhort and rebuke with all authority. Let no one disregard you. 
 
 ***
 

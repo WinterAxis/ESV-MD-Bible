@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD that came to Jeremiah the prophet concerning the nations. 
 
@@ -87,7 +86,7 @@ I will deliver them into the hand of those who seek their life, into the hand of
 "But fear not, O Jacob my servant, nor be dismayed, O Israel, for behold, I will save you from far away, and your offspring from the land of their captivity. Jacob shall return and have quiet and ease, and none shall make him afraid. 
 
 ###### 28 
-Fear not, O Jacob my servant, declares the LORD, for I am with you. I will make a full end of all the nations to which I have driven you, but of you I will not make a full end. I will discipline you in just measure, and I will by no means leave you unpunished." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Fear not, O Jacob my servant, declares the LORD, for I am with you. I will make a full end of all the nations to which I have driven you, but of you I will not make a full end. I will discipline you in just measure, and I will by no means leave you unpunished." 
 
 ***
 

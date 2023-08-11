@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the people saw that Moses delayed to come down from the mountain, the people gathered themselves together to Aaron and said to him, "Up, make us gods who shall go before us. As for this Moses, the man who brought us up out of the land of Egypt, we do not know what has become of him." 
 
@@ -108,7 +107,7 @@ But the LORD said to Moses, "Whoever has sinned against me, I will blot out of m
 But now go, lead the people to the place about which I have spoken to you; behold, my angel shall go before you. Nevertheless, in the day when I visit, I will visit their sin upon them." 
 
 ###### 35 
-Then the LORD sent a plague on the people, because they made the calf, the one that Aaron made. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the LORD sent a plague on the people, because they made the calf, the one that Aaron made. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You shall not make idols for yourselves or erect an image or pillar, and you shall not set up a figured stone in your land to bow down to it, for I am the LORD your God. 
 
@@ -141,7 +140,7 @@ Yet for all that, when they are in the land of their enemies, I will not spurn t
 But I will for their sake remember the covenant with their forefathers, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God: I am the LORD." 
 
 ###### 46 
-These are the statutes and rules and laws that the LORD made between himself and the people of Israel through Moses on Mount Sinai. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the statutes and rules and laws that the LORD made between himself and the people of Israel through Moses on Mount Sinai. 
 
 ***
 

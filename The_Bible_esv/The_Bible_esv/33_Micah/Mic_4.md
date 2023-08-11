@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 It shall come to pass in the latter days that the mountain of the house of the LORD shall be established as the highest of the mountains, and it shall be lifted up above the hills; and peoples shall flow to it, 
 
@@ -42,7 +41,7 @@ Now many nations are assembled against you, saying, "Let her be defiled, and let
 But they do not know the thoughts of the LORD; they do not understand his plan, that he has gathered them as sheaves to the threshing floor. 
 
 ###### 13 
-Arise and thresh, O daughter of Zion, for I will make your horn iron, and I will make your hoofs bronze; you shall beat in pieces many peoples; and shall devote their gain to the LORD, their wealth to the Lord of the whole earth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Arise and thresh, O daughter of Zion, for I will make your horn iron, and I will make your hoofs bronze; you shall beat in pieces many peoples; and shall devote their gain to the LORD, their wealth to the Lord of the whole earth. 
 
 ***
 

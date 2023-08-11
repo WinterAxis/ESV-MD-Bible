@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD appeared to him by the oaks of Mamre, as he sat at the door of his tent in the heat of the day. 
 
@@ -102,7 +101,7 @@ He said, "Behold, I have undertaken to speak to the Lord. Suppose twenty are fou
 Then he said, "Oh let not the Lord be angry, and I will speak again but this once. Suppose ten are found there." He answered, "For the sake of ten I will not destroy it." 
 
 ###### 33 
-And the LORD went his way, when he had finished speaking to Abraham, and Abraham returned to his place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the LORD went his way, when he had finished speaking to Abraham, and Abraham returned to his place. 
 
 ***
 

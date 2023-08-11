@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Hiram king of Tyre sent his servants to Solomon when he heard that they had anointed him king in place of his father, for Hiram always loved David. 
 
@@ -57,7 +56,7 @@ besides Solomon's 3,300 chief officers who were over the work, who had charge of
 At the king's command they quarried out great, costly stones in order to lay the foundation of the house with dressed stones. 
 
 ###### 18 
-So Solomon's builders and Hiram's builders and the men of Gebal did the cutting and prepared the timber and the stone to build the house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Solomon's builders and Hiram's builders and the men of Gebal did the cutting and prepared the timber and the stone to build the house. 
 
 ***
 

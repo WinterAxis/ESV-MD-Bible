@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses, saying, 
 
@@ -135,7 +134,7 @@ You shall dwell in booths for seven days. All native Israelites shall dwell in b
 that your generations may know that I made the people of Israel dwell in booths when I brought them out of the land of Egypt: I am the LORD your God." 
 
 ###### 44 
-Thus Moses declared to the people of Israel the appointed feasts of the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus Moses declared to the people of Israel the appointed feasts of the LORD. 
 
 ***
 

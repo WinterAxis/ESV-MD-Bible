@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Again he began to teach beside the sea. And a very large crowd gathered about him, so that he got into a boat and sat in it on the sea, and the whole crowd was beside the sea on the land. 
 
@@ -126,7 +125,7 @@ And he awoke and rebuked the wind and said to the sea, **"Peace! Be still!"** An
 He said to them, **"Why are you so afraid? Have you still no faith?"** 
 
 ###### 41 
-And they were filled with great fear and said to one another, "Who then is this, that even the wind and the sea obey him?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they were filled with great fear and said to one another, "Who then is this, that even the wind and the sea obey him?" 
 
 ***
 

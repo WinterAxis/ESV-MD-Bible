@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But a man named Ananias, with his wife Sapphira, sold a piece of property, 
 
@@ -129,7 +128,7 @@ and when they had called in the apostles, they beat them and charged them not to
 Then they left the presence of the council, rejoicing that they were counted worthy to suffer dishonor for the name. 
 
 ###### 42 
-And every day, in the temple and from house to house, they did not cease teaching and preaching that the Christ is Jesus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And every day, in the temple and from house to house, they did not cease teaching and preaching that the Christ is Jesus. 
 
 ***
 

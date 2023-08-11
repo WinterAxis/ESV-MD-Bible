@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar had dreams; his spirit was troubled, and his sleep left him. 
 
@@ -150,7 +149,7 @@ The king answered and said to Daniel, "Truly, your God is God of gods and Lord o
 Then the king gave Daniel high honors and many great gifts, and made him ruler over the whole province of Babylon and chief prefect over all the wise men of Babylon. 
 
 ###### 49 
-Daniel made a request of the king, and he appointed Shadrach, Meshach, and Abednego over the affairs of the province of Babylon. But Daniel remained at the king's court. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Daniel made a request of the king, and he appointed Shadrach, Meshach, and Abednego over the affairs of the province of Babylon. But Daniel remained at the king's court. 
 
 ***
 

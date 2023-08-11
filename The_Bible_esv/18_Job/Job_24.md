@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Why are not times of judgment kept by the Almighty, and why do those who know him never see his days? 
 
@@ -78,7 +77,7 @@ He gives them security, and they are supported, and his eyes are upon their ways
 They are exalted a little while, and then are gone; they are brought low and gathered up like all others; they are cut off like the heads of grain. 
 
 ###### 25 
-If it is not so, who will prove me a liar and show that there is nothing in what I say?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+If it is not so, who will prove me a liar and show that there is nothing in what I say?" 
 
 ***
 

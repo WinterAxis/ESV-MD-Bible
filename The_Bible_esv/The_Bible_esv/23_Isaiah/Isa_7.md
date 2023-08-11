@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the days of Ahaz the son of Jotham, son of Uzziah, king of Judah, Rezin the king of Syria and Pekah the son of Remaliah the king of Israel came up to Jerusalem to wage war against it, but could not yet mount an attack against it. 
 
@@ -78,7 +77,7 @@ In that day every place where there used to be a thousand vines, worth a thousan
 With bow and arrows a man will come there, for all the land will be briers and thorns. 
 
 ###### 25 
-And as for all the hills that used to be hoed with a hoe, you will not come there for fear of briers and thorns, but they will become a place where cattle are let loose and where sheep tread. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And as for all the hills that used to be hoed with a hoe, you will not come there for fear of briers and thorns, but they will become a place where cattle are let loose and where sheep tread. 
 
 ***
 

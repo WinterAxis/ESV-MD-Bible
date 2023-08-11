@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as Adoni-zedek, king of Jerusalem, heard how Joshua had captured Ai and had devoted it to destruction, doing to Ai and its king as he had done to Jericho and its king, and how the inhabitants of Gibeon had made peace with Israel and were among them, 
 
@@ -132,7 +131,7 @@ And Joshua struck them from Kadesh-barnea as far as Gaza, and all the country of
 And Joshua captured all these kings and their land at one time, because the LORD God of Israel fought for Israel. 
 
 ###### 43 
-Then Joshua returned, and all Israel with him, to the camp at Gilgal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Joshua returned, and all Israel with him, to the camp at Gilgal. 
 
 ***
 

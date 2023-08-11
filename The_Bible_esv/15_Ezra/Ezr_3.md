@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the seventh month came, and the children of Israel were in the towns, the people gathered as one man to Jerusalem. 
 
@@ -42,7 +41,7 @@ And they sang responsively, praising and giving thanks to the LORD, "For he is g
 But many of the priests and Levites and heads of fathers' houses, old men who had seen the first house, wept with a loud voice when they saw the foundation of this house being laid, though many shouted aloud for joy, 
 
 ###### 13 
-so that the people could not distinguish the sound of the joyful shout from the sound of the people's weeping, for the people shouted with a great shout, and the sound was heard far away. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that the people could not distinguish the sound of the joyful shout from the sound of the people's weeping, for the people shouted with a great shout, and the sound was heard far away. 
 
 ***
 

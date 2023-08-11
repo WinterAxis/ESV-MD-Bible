@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses, saying, 
 
@@ -108,7 +107,7 @@ and lay his hand on the head of the sin offering and kill it for a sin offering 
 Then the priest shall take some of the blood of the sin offering with his finger and put it on the horns of the altar of burnt offering and pour out all the rest of its blood at the base of the altar. 
 
 ###### 35 
-And all its fat he shall remove as the fat of the lamb is removed from the sacrifice of peace offerings, and the priest shall burn it on the altar, on top of the LORD's food offerings. And the priest shall make atonement for him for the sin which he has committed, and he shall be forgiven. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And all its fat he shall remove as the fat of the lamb is removed from the sacrifice of peace offerings, and the priest shall burn it on the altar, on top of the LORD's food offerings. And the priest shall make atonement for him for the sin which he has committed, and he shall be forgiven. 
 
 ***
 

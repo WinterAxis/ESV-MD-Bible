@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 You then, my child, be strengthened by the grace that is in Christ Jesus, 
 
@@ -81,7 +80,7 @@ And the Lord's servant must not be quarrelsome but kind to everyone, able to tea
 correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, 
 
 ###### 26 
-and they may come to their senses and escape from the snare of the devil, after being captured by him to do his will. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and they may come to their senses and escape from the snare of the devil, after being captured by him to do his will. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD in the days of Jehoiakim the son of Josiah, king of Judah: 
 
@@ -60,7 +59,7 @@ Therefore, thus says the LORD, the God of hosts, the God of Israel: Behold, I am
 But to the house of the Rechabites Jeremiah said, "Thus says the LORD of hosts, the God of Israel: Because you have obeyed the command of Jonadab your father and kept all his precepts and done all that he commanded you, 
 
 ###### 19 
-therefore thus says the LORD of hosts, the God of Israel: Jonadab the son of Rechab shall never lack a man to stand before me." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+therefore thus says the LORD of hosts, the God of Israel: Jonadab the son of Rechab shall never lack a man to stand before me." 
 
 ***
 

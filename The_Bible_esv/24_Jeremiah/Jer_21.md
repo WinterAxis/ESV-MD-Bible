@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 This is the word that came to Jeremiah from the LORD, when King Zedekiah sent to him Pashhur the son of Malchiah and Zephaniah the priest, the son of Maaseiah, saying, 
 
@@ -45,7 +44,7 @@ O house of David! Thus says the LORD: "'Execute justice in the morning, and deli
 "Behold, I am against you, O inhabitant of the valley, O rock of the plain, declares the LORD; you who say, 'Who shall come down against us, or who shall enter our habitations?' 
 
 ###### 14 
-I will punish you according to the fruit of your deeds, declares the LORD; I will kindle a fire in her forest, and it shall devour all that is around her." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will punish you according to the fruit of your deeds, declares the LORD; I will kindle a fire in her forest, and it shall devour all that is around her." 
 
 ***
 

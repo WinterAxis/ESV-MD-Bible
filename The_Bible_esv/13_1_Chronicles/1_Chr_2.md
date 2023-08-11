@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the sons of Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
 
@@ -168,7 +167,7 @@ And the clans of Kiriath-jearim: the Ithrites, the Puthites, the Shumathites, an
 The sons of Salma: Bethlehem, the Netophathites, Atroth-beth-joab and half of the Manahathites, the Zorites. 
 
 ###### 55 
-The clans also of the scribes who lived at Jabez: the Tirathites, the Shimeathites and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The clans also of the scribes who lived at Jabez: the Tirathites, the Shimeathites and the Sucathites. These are the Kenites who came from Hammath, the father of the house of Rechab. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Moses and the people of Israel sang this song to the LORD, saying, "I will sing to the LORD, for he has triumphed gloriously; the horse and his rider he has thrown into the sea. 
 
@@ -84,7 +83,7 @@ And he cried to the LORD, and the LORD showed him a log, and he threw it into th
 saying, "If you will diligently listen to the voice of the LORD your God, and do that which is right in his eyes, and give ear to his commandments and keep all his statutes, I will put none of the diseases on you that I put on the Egyptians, for I am the LORD, your healer." 
 
 ###### 27 
-Then they came to Elim, where there were twelve springs of water and seventy palm trees, and they encamped there by the water. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then they came to Elim, where there were twelve springs of water and seventy palm trees, and they encamped there by the water. 
 
 ***
 

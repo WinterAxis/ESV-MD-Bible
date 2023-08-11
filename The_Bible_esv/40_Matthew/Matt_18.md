@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At that time the disciples came to Jesus, saying, "Who is the greatest in the kingdom of heaven?" 
 
@@ -105,7 +104,7 @@ And should not you have had mercy on your fellow servant, as I had mercy on you?
 And in anger his master delivered him to the jailers, until he should pay all his debt. 
 
 ###### 35 
-So also my heavenly Father will do to every one of you, if you do not forgive your brother from your heart." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So also my heavenly Father will do to every one of you, if you do not forgive your brother from your heart." 
 
 ***
 

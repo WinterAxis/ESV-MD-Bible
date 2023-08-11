@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "But now, hear my speech, O Job, and listen to all my words. 
 
@@ -102,7 +101,7 @@ Pay attention, O Job, listen to me; be silent, and I will speak.
 If you have any words, answer me; speak, for I desire to justify you. 
 
 ###### 33 
-If not, listen to me; be silent, and I will teach you wisdom." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+If not, listen to me; be silent, and I will teach you wisdom." 
 
 ***
 

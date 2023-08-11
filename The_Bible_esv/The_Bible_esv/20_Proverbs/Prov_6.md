@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 My son, if you have put up security for your neighbor, have given your pledge for a stranger, 
 
@@ -108,7 +107,7 @@ He will get wounds and dishonor, and his disgrace will not be wiped away.
 For jealousy makes a man furious, and he will not spare when he takes revenge. 
 
 ###### 35 
-He will accept no compensation; he will refuse though you multiply gifts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He will accept no compensation; he will refuse though you multiply gifts. 
 
 ***
 

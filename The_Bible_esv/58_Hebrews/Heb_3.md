@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore, holy brothers, you who share in a heavenly calling, consider Jesus, the apostle and high priest of our confession, 
 
@@ -60,7 +59,7 @@ And with whom was he provoked for forty years? Was it not with those who sinned,
 And to whom did he swear that they would not enter his rest, but to those who were disobedient? 
 
 ###### 19 
-So we see that they were unable to enter because of unbelief. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So we see that they were unable to enter because of unbelief. 
 
 ***
 

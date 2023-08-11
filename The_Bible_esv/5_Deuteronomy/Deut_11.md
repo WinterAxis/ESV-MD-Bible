@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You shall therefore love the LORD your God and keep his charge, his statutes, his rules, and his commandments always. 
 
@@ -99,7 +98,7 @@ Are they not beyond the Jordan, west of the road, toward the going down of the s
 For you are to cross over the Jordan to go in to take possession of the land that the LORD your God is giving you. And when you possess it and live in it, 
 
 ###### 32 
-you shall be careful to do all the statutes and the rules that I am setting before you today. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+you shall be careful to do all the statutes and the rules that I am setting before you today. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And when we had parted from them and set sail, we came by a straight course to Cos, and the next day to Rhodes, and from there to Patara. 
 
@@ -123,7 +122,7 @@ Are you not the Egyptian, then, who recently stirred up a revolt and led the fou
 Paul replied, "I am a Jew, from Tarsus in Cilicia, a citizen of no obscure city. I beg you, permit me to speak to the people." 
 
 ###### 40 
-And when he had given him permission, Paul, standing on the steps, motioned with his hand to the people. And when there was a great hush, he addressed them in the Hebrew language, saying: ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And when he had given him permission, Paul, standing on the steps, motioned with his hand to the people. And when there was a great hush, he addressed them in the Hebrew language, saying: 
 
 ***
 

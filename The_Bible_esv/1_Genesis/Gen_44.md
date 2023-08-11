@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he commanded the steward of his house, "Fill the men's sacks with food, as much as they can carry, and put each man's money in the mouth of his sack, 
 
@@ -105,7 +104,7 @@ For your servant became a pledge of safety for the boy to my father, saying, 'If
 Now therefore, please let your servant remain instead of the boy as a servant to my lord, and let the boy go back with his brothers. 
 
 ###### 34 
-For how can I go back to my father if the boy is not with me? I fear to see the evil that would find my father." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For how can I go back to my father if the boy is not with me? I fear to see the evil that would find my father." 
 
 ***
 

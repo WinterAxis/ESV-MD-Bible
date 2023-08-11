@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear this, O house of Jacob, who are called by the name of Israel, and who came from the waters of Judah, who swear by the name of the LORD and confess the God of Israel, but not in truth or right. 
 
@@ -69,7 +68,7 @@ Go out from Babylon, flee from Chaldea, declare this with a shout of joy, procla
 They did not thirst when he led them through the deserts; he made water flow for them from the rock; he split the rock and the water gushed out. 
 
 ###### 22 
-"There is no peace," says the LORD, "for the wicked." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"There is no peace," says the LORD, "for the wicked." 
 
 ***
 

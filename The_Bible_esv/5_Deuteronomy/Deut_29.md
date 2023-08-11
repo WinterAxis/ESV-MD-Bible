@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the words of the covenant that the LORD commanded Moses to make with the people of Israel in the land of Moab, besides the covenant that he had made with them at Horeb. 
 
@@ -90,7 +89,7 @@ Therefore the anger of the LORD was kindled against this land, bringing upon it 
 and the LORD uprooted them from their land in anger and fury and great wrath, and cast them into another land, as they are this day.' 
 
 ###### 29 
-"The secret things belong to the LORD our God, but the things that are revealed belong to us and to our children forever, that we may do all the words of this law. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"The secret things belong to the LORD our God, but the things that are revealed belong to us and to our children forever, that we may do all the words of this law. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses and Aaron, saying, 
 
@@ -180,7 +179,7 @@ Then if it appears again in the garment, in the warp or the woof, or in any arti
 But the garment, or the warp or the woof, or any article made of skin from which the disease departs when you have washed it, shall then be washed a second time, and be clean." 
 
 ###### 59 
-This is the law for a case of leprous disease in a garment of wool or linen, either in the warp or the woof, or in any article made of skin, to determine whether it is clean or unclean. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+This is the law for a case of leprous disease in a garment of wool or linen, either in the warp or the woof, or in any article made of skin, to determine whether it is clean or unclean. 
 
 ***
 

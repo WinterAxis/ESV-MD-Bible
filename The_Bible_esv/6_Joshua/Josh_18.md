@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then the whole congregation of the people of Israel assembled at Shiloh and set up the tent of meeting there. The land lay subdued before them. 
 
@@ -87,7 +86,7 @@ Mizpeh, Chephirah, Mozah,
 Rekem, Irpeel, Taralah, 
 
 ###### 28 
-Zela, Haeleph, Jebus (that is, Jerusalem), Gibeah and Kiriath-jearim--fourteen cities with their villages. This is the inheritance of the people of Benjamin according to its clans. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Zela, Haeleph, Jebus (that is, Jerusalem), Gibeah and Kiriath-jearim--fourteen cities with their villages. This is the inheritance of the people of Benjamin according to its clans. 
 
 ***
 

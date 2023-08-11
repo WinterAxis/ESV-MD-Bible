@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When he came down from the mountain, great crowds followed him. 
 
@@ -105,7 +104,7 @@ And he said to them, **"Go."** So they came out and went into the pigs, and beho
 The herdsmen fled, and going into the city they told everything, especially what had happened to the demon-possessed men. 
 
 ###### 34 
-And behold, all the city came out to meet Jesus, and when they saw him, they begged him to leave their region. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And behold, all the city came out to meet Jesus, and when they saw him, they begged him to leave their region. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadnezzar king of Babylon and all his army came against Jerusalem and besieged it. 
 
@@ -57,7 +56,7 @@ The word of the LORD came to Jeremiah while he was shut up in the court of the g
 But I will deliver you on that day, declares the LORD, and you shall not be given into the hand of the men of whom you are afraid. 
 
 ###### 18 
-For I will surely save you, and you shall not fall by the sword, but you shall have your life as a prize of war, because you have put your trust in me, declares the LORD.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For I will surely save you, and you shall not fall by the sword, but you shall have your life as a prize of war, because you have put your trust in me, declares the LORD.'" 
 
 ***
 

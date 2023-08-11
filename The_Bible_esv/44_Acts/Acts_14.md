@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now at Iconium they entered together into the Jewish synagogue and spoke in such a way that a great number of both Jews and Greeks believed. 
 
@@ -87,7 +86,7 @@ and from there they sailed to Antioch, where they had been commended to the grac
 And when they arrived and gathered the church together, they declared all that God had done with them, and how he had opened a door of faith to the Gentiles. 
 
 ###### 28 
-And they remained no little time with the disciples. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they remained no little time with the disciples. 
 
 ***
 

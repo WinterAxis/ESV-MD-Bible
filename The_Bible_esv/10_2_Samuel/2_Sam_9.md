@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And David said, "Is there still anyone left of the house of Saul, that I may show him kindness for Jonathan's sake?" 
 
@@ -42,7 +41,7 @@ Then Ziba said to the king, "According to all that my lord the king commands his
 And Mephibosheth had a young son, whose name was Mica. And all who lived in Ziba's house became Mephibosheth's servants. 
 
 ###### 13 
-So Mephibosheth lived in Jerusalem, for he ate always at the king's table. Now he was lame in both his feet. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Mephibosheth lived in Jerusalem, for he ate always at the king's table. Now he was lame in both his feet. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Beware of practicing your righteousness before other people in order to be seen by them, for then you will have no reward from your Father who is in heaven. 
 
@@ -105,7 +104,7 @@ For the Gentiles seek after all these things, and your heavenly Father knows tha
 But seek first the kingdom of God and his righteousness, and all these things will be added to you. 
 
 ###### 34 
-"Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. 
 
 ***
 

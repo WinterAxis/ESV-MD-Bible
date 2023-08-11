@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now even the first covenant had regulations for worship and an earthly place of holiness. 
 
@@ -87,7 +86,7 @@ for then he would have had to suffer repeatedly since the foundation of the worl
 And just as it is appointed for man to die once, and after that comes judgment, 
 
 ###### 28 
-so Christ, having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save those who are eagerly waiting for him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so Christ, having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save those who are eagerly waiting for him. 
 
 ***
 

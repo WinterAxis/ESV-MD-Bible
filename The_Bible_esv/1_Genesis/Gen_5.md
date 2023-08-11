@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 This is the book of the generations of Adam. When God created man, he made him in the likeness of God. 
 
@@ -99,7 +98,7 @@ Lamech lived after he fathered Noah 595 years and had other sons and daughters.
 Thus all the days of Lamech were 777 years, and he died. 
 
 ###### 32 
-After Noah was 500 years old, Noah fathered Shem, Ham, and Japheth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+After Noah was 500 years old, Noah fathered Shem, Ham, and Japheth. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD said to Joshua, "Do not fear and do not be dismayed. Take all the fighting men with you, and arise, go up to Ai. See, I have given into your hand the king of Ai, and his people, his city, and his land. 
 
@@ -108,7 +107,7 @@ And all Israel, sojourner as well as native born, with their elders and officers
 And afterward he read all the words of the law, the blessing and the curse, according to all that is written in the Book of the Law. 
 
 ###### 35 
-There was not a word of all that Moses commanded that Joshua did not read before all the assembly of Israel, and the women, and the little ones, and the sojourners who lived among them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+There was not a word of all that Moses commanded that Joshua did not read before all the assembly of Israel, and the women, and the little ones, and the sojourners who lived among them. 
 
 ***
 

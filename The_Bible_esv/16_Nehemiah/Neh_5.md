@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now there arose a great outcry of the people and of their wives against their Jewish brothers. 
 
@@ -60,7 +59,7 @@ Moreover, there were at my table 150 men, Jews and officials, besides those who 
 Now what was prepared at my expense for each day was one ox and six choice sheep and birds, and every ten days all kinds of wine in abundance. Yet for all this I did not demand the food allowance of the governor, because the service was too heavy on this people. 
 
 ###### 19 
-Remember for my good, O my God, all that I have done for this people. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Remember for my good, O my God, all that I have done for this people. 
 
 ***
 

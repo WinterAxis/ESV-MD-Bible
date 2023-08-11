@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 O LORD, you are my God; I will exalt you; I will praise your name, for you have done wonderful things, plans formed of old, faithful and sure. 
 
@@ -39,7 +38,7 @@ For the hand of the LORD will rest on this mountain, and Moab shall be trampled 
 And he will spread out his hands in the midst of it as a swimmer spreads his hands out to swim, but the LORD will lay low his pompous pride together with the skill of his hands. 
 
 ###### 12 
-And the high fortifications of his walls he will bring down, lay low, and cast to the ground, to the dust. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the high fortifications of his walls he will bring down, lay low, and cast to the ground, to the dust. 
 
 ***
 

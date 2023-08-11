@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Wine is a mocker, strong drink a brawler, and whoever is led astray by it is not wise. 
 
@@ -93,7 +92,7 @@ Steadfast love and faithfulness preserve the king, and by steadfast love his thr
 The glory of young men is their strength, but the splendor of old men is their gray hair. 
 
 ###### 30 
-Blows that wound cleanse away evil; strokes make clean the innermost parts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Blows that wound cleanse away evil; strokes make clean the innermost parts. 
 
 ***
 

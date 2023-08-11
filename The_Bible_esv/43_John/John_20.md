@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now on the first day of the week Mary Magdalene came to the tomb early, while it was still dark, and saw that the stone had been taken away from the tomb. 
 
@@ -96,7 +95,7 @@ Jesus said to him, **"Have you believed because you have seen me? Blessed are th
 Now Jesus did many other signs in the presence of the disciples, which are not written in this book; 
 
 ###### 31 
-but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name. 
 
 ***
 

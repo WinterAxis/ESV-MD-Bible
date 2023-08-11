@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the seventh year, in the fifth month, on the tenth day of the month, certain of the elders of Israel came to inquire of the LORD, and sat before me. 
 
@@ -150,7 +149,7 @@ Say to the forest of the Negeb, Hear the word of the LORD: Thus says the Lord Go
 All flesh shall see that I the LORD have kindled it; it shall not be quenched." 
 
 ###### 49 
-Then I said, "Ah, Lord God! They are saying of me, 'Is he not a maker of parables?'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I said, "Ah, Lord God! They are saying of me, 'Is he not a maker of parables?'" 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There was a certain man of Ramathaim-zophim of the hill country of Ephraim whose name was Elkanah the son of Jeroham, son of Elihu, son of Tohu, son of Zuph, an Ephrathite. 
 
@@ -87,7 +86,7 @@ And she said, "Oh, my lord! As you live, my lord, I am the woman who was standin
 For this child I prayed, and the LORD has granted me my petition that I made to him. 
 
 ###### 28 
-Therefore I have lent him to the LORD. As long as he lives, he is lent to the LORD." And he worshiped the LORD there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore I have lent him to the LORD. As long as he lives, he is lent to the LORD." And he worshiped the LORD there. 
 
 ***
 

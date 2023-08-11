@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "On that day there shall be a fountain opened for the house of David and the inhabitants of Jerusalem, to cleanse them from sin and uncleanness. ## Idolatry Cut Off 
 
@@ -30,7 +29,7 @@ And if one asks him, 'What are these wounds on your back?' he will say, 'The wou
 In the whole land, declares the LORD, two thirds shall be cut off and perish, and one third shall be left alive. 
 
 ###### 9 
-And I will put this third into the fire, and refine them as one refines silver, and test them as gold is tested. They will call upon my name, and I will answer them. I will say, 'They are my people'; and they will say, 'The LORD is my God.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will put this third into the fire, and refine them as one refines silver, and test them as gold is tested. They will call upon my name, and I will answer them. I will say, 'They are my people'; and they will say, 'The LORD is my God.'" 
 
 ***
 

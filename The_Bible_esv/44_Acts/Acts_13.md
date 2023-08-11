@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now there were in the church at Antioch prophets and teachers, Barnabas, Simeon who was called Niger, Lucius of Cyrene, Manaen a lifelong friend of Herod the tetrarch, and Saul. 
 
@@ -159,7 +158,7 @@ But the Jews incited the devout women of high standing and the leading men of th
 But they shook off the dust from their feet against them and went to Iconium. 
 
 ###### 52 
-And the disciples were filled with joy and with the Holy Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the disciples were filled with joy and with the Holy Spirit. 
 
 ***
 

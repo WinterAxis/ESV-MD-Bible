@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 An oracle concerning Moab. Because Ar of Moab is laid waste in a night, Moab is undone; because Kir of Moab is laid waste in a night, Moab is undone. 
 
@@ -30,7 +29,7 @@ Therefore the abundance they have gained and what they have laid up they carry a
 For a cry has gone around the land of Moab; her wailing reaches to Eglaim; her wailing reaches to Beer-elim. 
 
 ###### 9 
-For the waters of Dibon are full of blood; for I will bring upon Dibon even more, a lion for those of Moab who escape, for the remnant of the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the waters of Dibon are full of blood; for I will bring upon Dibon even more, a lion for those of Moab who escape, for the remnant of the land. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then sang Deborah and Barak the son of Abinoam on that day: 
 
@@ -96,7 +95,7 @@ Her wisest princesses answer, indeed, she answers herself,
 'Have they not found and divided the spoil?-- A womb or two for every man; spoil of dyed materials for Sisera, spoil of dyed materials embroidered, two pieces of dyed work embroidered for the neck as spoil?' 
 
 ###### 31 
-"So may all your enemies perish, O LORD! But your friends be like the sun as he rises in his might." And the land had rest for forty years. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"So may all your enemies perish, O LORD! But your friends be like the sun as he rises in his might." And the land had rest for forty years. 
 
 ***
 

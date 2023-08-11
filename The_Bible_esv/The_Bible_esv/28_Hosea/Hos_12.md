@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Ephraim feeds on the wind and pursues the east wind all day long; they multiply falsehood and violence; they make a covenant with Assyria, and oil is carried to Egypt. ## The LORD's Indictment of Israel and Judah 
 
@@ -45,7 +44,7 @@ Jacob fled to the land of Aram; there Israel served for a wife, and for a wife h
 By a prophet the LORD brought Israel up from Egypt, and by a prophet he was guarded. 
 
 ###### 14 
-Ephraim has given bitter provocation; so his Lord will leave his bloodguilt on him and will repay him for his disgraceful deeds. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Ephraim has given bitter provocation; so his Lord will leave his bloodguilt on him and will repay him for his disgraceful deeds. 
 
 ***
 

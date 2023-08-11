@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, an apostle of Christ Jesus by the will of God, and Timothy our brother, To the church of God that is at Corinth, with all the saints who are in the whole of Achaia: 
 
@@ -75,7 +74,7 @@ and who has also put his seal on us and given us his Spirit in our hearts as a g
 But I call God to witness against me--it was to spare you that I refrained from coming again to Corinth. 
 
 ###### 24 
-Not that we lord it over your faith, but we work with you for your joy, for you stand firm in your faith. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Not that we lord it over your faith, but we work with you for your joy, for you stand firm in your faith. 
 
 ***
 

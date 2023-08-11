@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But there will be no gloom for her who was in anguish. In the former time he brought into contempt the land of Zebulun and the land of Naphtali, but in the latter time he has made glorious the way of the sea, the land beyond the Jordan, Galilee of the nations. 
 
@@ -66,7 +65,7 @@ Through the wrath of the LORD of hosts the land is scorched, and the people are 
 They slice meat on the right, but are still hungry, and they devour on the left, but are not satisfied; each devours the flesh of his own arm, 
 
 ###### 21 
-Manasseh devours Ephraim, and Ephraim devours Manasseh; together they are against Judah. For all this his anger has not turned away, and his hand is stretched out still. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Manasseh devours Ephraim, and Ephraim devours Manasseh; together they are against Judah. For all this his anger has not turned away, and his hand is stretched out still. 
 
 ***
 

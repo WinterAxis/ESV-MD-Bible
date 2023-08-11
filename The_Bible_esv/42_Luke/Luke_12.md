@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the meantime, when so many thousands of the people had gathered together that they were trampling one another, he began to say to his disciples first, **"Beware of the leaven of the Pharisees, which is hypocrisy.** 
 
@@ -180,7 +179,7 @@ You hypocrites! You know how to interpret the appearance of earth and sky, but w
 As you go with your accuser before the magistrate, make an effort to settle with him on the way, lest he drag you to the judge, and the judge hand you over to the officer, and the officer put you in prison. 
 
 ###### 59 
-I tell you, you will never get out until you have paid the very last penny." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I tell you, you will never get out until you have paid the very last penny." 
 
 ***
 

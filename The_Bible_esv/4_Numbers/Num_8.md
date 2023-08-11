@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the LORD spoke to Moses, saying, 
 
@@ -81,7 +80,7 @@ And the LORD spoke to Moses, saying,
 And from the age of fifty years they shall withdraw from the duty of the service and serve no more. 
 
 ###### 26 
-They minister to their brothers in the tent of meeting by keeping guard, but they shall do no service. Thus shall you do to the Levites in assigning their duties." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They minister to their brothers in the tent of meeting by keeping guard, but they shall do no service. Thus shall you do to the Levites in assigning their duties." 
 
 ***
 

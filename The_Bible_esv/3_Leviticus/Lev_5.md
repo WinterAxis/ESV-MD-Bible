@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If anyone sins in that he hears a public adjuration to testify, and though he is a witness, whether he has seen or come to know the matter, yet does not speak, he shall bear his iniquity; 
 
@@ -60,7 +59,7 @@ He shall also make restitution for what he has done amiss in the holy thing and 
 He shall bring to the priest a ram without blemish out of the flock, or its equivalent, for a guilt offering, and the priest shall make atonement for him for the mistake that he made unintentionally, and he shall be forgiven. 
 
 ###### 19 
-It is a guilt offering; he has indeed incurred guilt before the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+It is a guilt offering; he has indeed incurred guilt before the LORD." 
 
 ***
 

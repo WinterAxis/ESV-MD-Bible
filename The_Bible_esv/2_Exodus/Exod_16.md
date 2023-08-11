@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 They set out from Elim, and all the congregation of the people of Israel came to the wilderness of Sin, which is between Elim and Sinai, on the fifteenth day of the second month after they had departed from the land of Egypt. 
 
@@ -111,7 +110,7 @@ As the LORD commanded Moses, so Aaron placed it before the testimony to be kept.
 The people of Israel ate the manna forty years, till they came to a habitable land. They ate the manna till they came to the border of the land of Canaan. 
 
 ###### 36 
-(An omer is the tenth part of an ephah.) ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+(An omer is the tenth part of an ephah.) 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Rejoice not, O Israel! Exult not like the peoples; for you have played the whore, forsaking your God. You have loved a prostitute's wages on all threshing floors. 
 
@@ -54,7 +53,7 @@ Every evil of theirs is in Gilgal; there I began to hate them. Because of the wi
 Ephraim is stricken; their root is dried up; they shall bear no fruit. Even though they give birth, I will put their beloved children to death. 
 
 ###### 17 
-My God will reject them because they have not listened to him; they shall be wanderers among the nations. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+My God will reject them because they have not listened to him; they shall be wanderers among the nations. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After the plague, the LORD said to Moses and to Eleazar the son of Aaron, the priest, 
 
@@ -198,7 +197,7 @@ These were those listed by Moses and Eleazar the priest, who listed the people o
 But among these there was not one of those listed by Moses and Aaron the priest, who had listed the people of Israel in the wilderness of Sinai. 
 
 ###### 65 
-For the LORD had said of them, "They shall die in the wilderness." Not one of them was left, except Caleb the son of Jephunneh and Joshua the son of Nun. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the LORD had said of them, "They shall die in the wilderness." Not one of them was left, except Caleb the son of Jephunneh and Joshua the son of Nun. 
 
 ***
 

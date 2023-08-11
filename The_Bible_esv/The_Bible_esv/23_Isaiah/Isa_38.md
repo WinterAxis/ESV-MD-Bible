@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days Hezekiah became sick and was at the point of death. And Isaiah the prophet the son of Amoz came to him, and said to him, "Thus says the LORD: Set your house in order, for you shall die, you shall not recover." 
 
@@ -69,7 +68,7 @@ The LORD will save me, and we will play my music on stringed instruments all the
 Now Isaiah had said, "Let them take a cake of figs and apply it to the boil, that he may recover." 
 
 ###### 22 
-Hezekiah also had said, "What is the sign that I shall go up to the house of the LORD?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Hezekiah also had said, "What is the sign that I shall go up to the house of the LORD?" 
 
 ***
 

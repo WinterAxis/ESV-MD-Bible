@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 One Sabbath, when he went to dine at the house of a ruler of the Pharisees, they were watching him carefully. 
 
@@ -108,7 +107,7 @@ So therefore, any one of you who does not renounce all that he has cannot be my 
 "Salt is good, but if salt has lost its taste, how shall its saltiness be restored? 
 
 ###### 35 
-It is of no use either for the soil or for the manure pile. It is thrown away. He who has ears to hear, let him hear." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+It is of no use either for the soil or for the manure pile. It is thrown away. He who has ears to hear, let him hear." 
 
 ***
 

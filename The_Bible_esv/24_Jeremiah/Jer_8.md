@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "At that time, declares the LORD, the bones of the kings of Judah, the bones of its officials, the bones of the priests, the bones of the prophets, and the bones of the inhabitants of Jerusalem shall be brought out of their tombs. 
 
@@ -69,7 +68,7 @@ Behold, the cry of the daughter of my people from the length and breadth of the 
 For the wound of the daughter of my people is my heart wounded; I mourn, and dismay has taken hold on me. 
 
 ###### 22 
-Is there no balm in Gilead? Is there no physician there? Why then has the health of the daughter of my people not been restored? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Is there no balm in Gilead? Is there no physician there? Why then has the health of the daughter of my people not been restored? 
 
 ***
 

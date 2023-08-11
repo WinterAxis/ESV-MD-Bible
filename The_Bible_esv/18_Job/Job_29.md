@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Job again took up his discourse, and said: 
 
@@ -78,7 +77,7 @@ They waited for me as for the rain, and they opened their mouths as for the spri
 I smiled on them when they had no confidence, and the light of my face they did not cast down. 
 
 ###### 25 
-I chose their way and sat as chief, and I lived like a king among his troops, like one who comforts mourners. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I chose their way and sat as chief, and I lived like a king among his troops, like one who comforts mourners. 
 
 ***
 

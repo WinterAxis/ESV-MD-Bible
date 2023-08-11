@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There was a long war between the house of Saul and the house of David. And David grew stronger and stronger, while the house of Saul became weaker and weaker. 
 
@@ -120,7 +119,7 @@ So all the people and all Israel understood that day that it had not been the ki
 And the king said to his servants, "Do you not know that a prince and a great man has fallen this day in Israel? 
 
 ###### 39 
-And I was gentle today, though anointed king. These men, the sons of Zeruiah, are more severe than I. The LORD repay the evildoer according to his wickedness!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I was gentle today, though anointed king. These men, the sons of Zeruiah, are more severe than I. The LORD repay the evildoer according to his wickedness!" 
 
 ***
 

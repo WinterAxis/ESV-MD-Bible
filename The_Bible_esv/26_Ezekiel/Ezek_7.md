@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -84,7 +83,7 @@ When anguish comes, they will seek peace, but there shall be none.
 Disaster comes upon disaster; rumor follows rumor. They seek a vision from the prophet, while the law perishes from the priest and counsel from the elders. 
 
 ###### 27 
-The king mourns, the prince is wrapped in despair, and the hands of the people of the land are paralyzed by terror. According to their way I will do to them, and according to their judgments I will judge them, and they shall know that I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The king mourns, the prince is wrapped in despair, and the hands of the people of the land are paralyzed by terror. According to their way I will do to them, and according to their judgments I will judge them, and they shall know that I am the LORD." 
 
 ***
 

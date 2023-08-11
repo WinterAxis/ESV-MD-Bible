@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 God said to Jacob, "Arise, go up to Bethel and dwell there. Make an altar there to the God who appeared to you when you fled from your brother Esau." 
 
@@ -90,7 +89,7 @@ And Jacob came to his father Isaac at Mamre, or Kiriath-arba (that is, Hebron), 
 Now the days of Isaac were 180 years. 
 
 ###### 29 
-And Isaac breathed his last, and he died and was gathered to his people, old and full of days. And his sons Esau and Jacob buried him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Isaac breathed his last, and he died and was gathered to his people, old and full of days. And his sons Esau and Jacob buried him. 
 
 ***
 

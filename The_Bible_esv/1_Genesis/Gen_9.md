@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And God blessed Noah and his sons and said to them, "Be fruitful and multiply and fill the earth. 
 
@@ -90,7 +89,7 @@ May God enlarge Japheth, and let him dwell in the tents of Shem, and let Canaan 
 After the flood Noah lived 350 years. 
 
 ###### 29 
-All the days of Noah were 950 years, and he died. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+All the days of Noah were 950 years, and he died. 
 
 ***
 

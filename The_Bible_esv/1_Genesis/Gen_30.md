@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Rachel saw that she bore Jacob no children, she envied her sister. She said to Jacob, "Give me children, or I shall die!" 
 
@@ -132,7 +131,7 @@ Whenever the stronger of the flock were breeding, Jacob would lay the sticks in 
 but for the feebler of the flock he would not lay them there. So the feebler would be Laban's, and the stronger Jacob's. 
 
 ###### 43 
-Thus the man increased greatly and had large flocks, female servants and male servants, and camels and donkeys. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus the man increased greatly and had large flocks, female servants and male servants, and camels and donkeys. 
 
 ***
 

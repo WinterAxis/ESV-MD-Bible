@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the third year of Cyrus king of Persia a word was revealed to Daniel, who was named Belteshazzar. And the word was true, and it was a great conflict. And he understood the word and had understanding of the vision. 
 
@@ -66,7 +65,7 @@ And he said, "O man greatly loved, fear not, peace be with you; be strong and of
 Then he said, "Do you know why I have come to you? But now I will return to fight against the prince of Persia; and when I go out, behold, the prince of Greece will come. 
 
 ###### 21 
-But I will tell you what is inscribed in the book of truth: there is none who contends by my side against these except Michael, your prince. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But I will tell you what is inscribed in the book of truth: there is none who contends by my side against these except Michael, your prince. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Israel is a luxuriant vine that yields its fruit. The more his fruit increased, the more altars he built; as his country improved, he improved his pillars. 
 
@@ -48,7 +47,7 @@ You have plowed iniquity; you have reaped injustice; you have eaten the fruit of
 therefore the tumult of war shall arise among your people, and all your fortresses shall be destroyed, as Shalman destroyed Beth-arbel on the day of battle; mothers were dashed in pieces with their children. 
 
 ###### 15 
-Thus it shall be done to you, O Bethel, because of your great evil. At dawn the king of Israel shall be utterly cut off. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus it shall be done to you, O Bethel, because of your great evil. At dawn the king of Israel shall be utterly cut off. 
 
 ***
 

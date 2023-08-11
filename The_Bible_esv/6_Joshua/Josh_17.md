@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then allotment was made to the people of Manasseh, for he was the firstborn of Joseph. To Machir the firstborn of Manasseh, the father of Gilead, were allotted Gilead and Bashan, because he was a man of war. 
 
@@ -57,7 +56,7 @@ The people of Joseph said, "The hill country is not enough for us. Yet all the C
 Then Joshua said to the house of Joseph, to Ephraim and Manasseh, "You are a numerous people and have great power. You shall not have one allotment only, 
 
 ###### 18 
-but the hill country shall be yours, for though it is a forest, you shall clear it and possess it to its farthest borders. For you shall drive out the Canaanites, though they have chariots of iron, and though they are strong." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+but the hill country shall be yours, for though it is a forest, you shall clear it and possess it to its farthest borders. For you shall drive out the Canaanites, though they have chariots of iron, and though they are strong." 
 
 ***
 

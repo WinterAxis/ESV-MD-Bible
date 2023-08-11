@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD to me, "Go and buy a linen loincloth and put it around your waist, and do not dip it in water." 
 
@@ -84,7 +83,7 @@ This is your lot, the portion I have measured out to you, declares the LORD, bec
 I myself will lift up your skirts over your face, and your shame will be seen. 
 
 ###### 27 
-I have seen your abominations, your adulteries and neighings, your lewd whorings, on the hills in the field. Woe to you, O Jerusalem! How long will it be before you are made clean?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I have seen your abominations, your adulteries and neighings, your lewd whorings, on the hills in the field. Woe to you, O Jerusalem! How long will it be before you are made clean?" 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he said to me, "Son of man, stand on your feet, and I will speak with you." 
 
@@ -33,7 +32,7 @@ And you shall speak my words to them, whether they hear or refuse to hear, for t
 And when I looked, behold, a hand was stretched out to me, and behold, a scroll of a book was in it. 
 
 ###### 10 
-And he spread it before me. And it had writing on the front and on the back, and there were written on it words of lamentation and mourning and woe. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he spread it before me. And it had writing on the front and on the back, and there were written on it words of lamentation and mourning and woe. 
 
 ***
 

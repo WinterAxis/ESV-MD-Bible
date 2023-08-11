@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Behold, a day is coming for the LORD, when the spoil taken from you will be divided in your midst. 
 
@@ -66,7 +65,7 @@ This shall be the punishment to Egypt and the punishment to all the nations that
 And on that day there shall be inscribed on the bells of the horses, "Holy to the LORD." And the pots in the house of the LORD shall be as the bowls before the altar. 
 
 ###### 21 
-And every pot in Jerusalem and Judah shall be holy to the LORD of hosts, so that all who sacrifice may come and take of them and boil the meat of the sacrifice in them. And there shall no longer be a trader in the house of the LORD of hosts on that day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And every pot in Jerusalem and Judah shall be holy to the LORD of hosts, so that all who sacrifice may come and take of them and boil the meat of the sacrifice in them. And there shall no longer be a trader in the house of the LORD of hosts on that day. 
 
 ***
 

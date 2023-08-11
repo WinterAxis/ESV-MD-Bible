@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Joshua the son of Nun sent two men secretly from Shittim as spies, saying, "Go, view the land, especially Jericho." And they went and came into the house of a prostitute whose name was Rahab and lodged there. 
 
@@ -75,7 +74,7 @@ They departed and went into the hills and remained there three days until the pu
 Then the two men returned. They came down from the hills and passed over and came to Joshua the son of Nun, and they told him all that had happened to them. 
 
 ###### 24 
-And they said to Joshua, "Truly the LORD has given all the land into our hands. And also, all the inhabitants of the land melt away because of us." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they said to Joshua, "Truly the LORD has given all the land into our hands. And also, all the inhabitants of the land melt away because of us." 
 
 ***
 

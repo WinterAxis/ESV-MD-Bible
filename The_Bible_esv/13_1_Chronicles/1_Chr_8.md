@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Benjamin fathered Bela his firstborn, Ashbel the second, Aharah the third, 
 
@@ -123,7 +122,7 @@ Azel had six sons, and these are their names: Azrikam, Bocheru, Ishmael, Shearia
 The sons of Eshek his brother: Ulam his firstborn, Jeush the second, and Eliphelet the third. 
 
 ###### 40 
-The sons of Ulam were men who were mighty warriors, bowmen, having many sons and grandsons, 150. All these were Benjaminites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The sons of Ulam were men who were mighty warriors, bowmen, having many sons and grandsons, 150. All these were Benjaminites. 
 
 ***
 

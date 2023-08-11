@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD said to Moses, "Depart; go up from here, you and the people whom you have brought up out of the land of Egypt, to the land of which I swore to Abraham, Isaac, and Jacob, saying, 'To your offspring I will give it.' 
 
@@ -72,7 +71,7 @@ And the LORD said, "Behold, there is a place by me where you shall stand on the 
 and while my glory passes by I will put you in a cleft of the rock, and I will cover you with my hand until I have passed by. 
 
 ###### 23 
-Then I will take away my hand, and you shall see my back, but my face shall not be seen." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I will take away my hand, and you shall see my back, but my face shall not be seen." 
 
 ***
 

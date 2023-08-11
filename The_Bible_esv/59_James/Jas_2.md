@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory. 
 
@@ -81,7 +80,7 @@ You see that a person is justified by works and not by faith alone.
 And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? 
 
 ###### 26 
-For as the body apart from the spirit is dead, so also faith apart from works is dead. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For as the body apart from the spirit is dead, so also faith apart from works is dead. 
 
 ***
 

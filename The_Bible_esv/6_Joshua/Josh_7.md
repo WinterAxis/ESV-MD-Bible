@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But the people of Israel broke faith in regard to the devoted things, for Achan the son of Carmi, son of Zabdi, son of Zerah, of the tribe of Judah, took some of the devoted things. And the anger of the LORD burned against the people of Israel. 
 
@@ -81,7 +80,7 @@ And Joshua and all Israel with him took Achan the son of Zerah, and the silver a
 And Joshua said, "Why did you bring trouble on us? The LORD brings trouble on you today." And all Israel stoned him with stones. They burned them with fire and stoned them with stones. 
 
 ###### 26 
-And they raised over him a great heap of stones that remains to this day. Then the LORD turned from his burning anger. Therefore, to this day the name of that place is called the Valley of Achor. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they raised over him a great heap of stones that remains to this day. Then the LORD turned from his burning anger. Therefore, to this day the name of that place is called the Valley of Achor. 
 
 ***
 

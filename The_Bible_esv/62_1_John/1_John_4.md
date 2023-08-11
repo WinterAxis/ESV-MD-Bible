@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. 
 
@@ -66,7 +65,7 @@ We love because he first loved us.
 If anyone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. 
 
 ###### 21 
-And this commandment we have from him: whoever loves God must also love his brother. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And this commandment we have from him: whoever loves God must also love his brother. 
 
 ***
 

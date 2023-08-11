@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 An oracle concerning Nineveh. The book of the vision of Nahum of Elkosh. ## God's Wrath Against Nineveh 
 
@@ -48,7 +47,7 @@ And now I will break his yoke from off you and will burst your bonds apart."
 The LORD has given commandment about you: "No more shall your name be perpetuated; from the house of your gods I will cut off the carved image and the metal image. I will make your grave, for you are vile." 
 
 ###### 15 
-Behold, upon the mountains, the feet of him who brings good news, who publishes peace! Keep your feasts, O Judah; fulfill your vows, for never again shall the worthless pass through you; he is utterly cut off. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, upon the mountains, the feet of him who brings good news, who publishes peace! Keep your feasts, O Judah; fulfill your vows, for never again shall the worthless pass through you; he is utterly cut off. 
 
 ***
 

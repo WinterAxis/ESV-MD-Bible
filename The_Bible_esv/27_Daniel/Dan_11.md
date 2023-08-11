@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "And as for me, in the first year of Darius the Mede, I stood up to confirm and strengthen him. 
 
@@ -138,7 +137,7 @@ He shall become ruler of the treasures of gold and of silver, and all the precio
 But news from the east and the north shall alarm him, and he shall go out with great fury to destroy and devote many to destruction. 
 
 ###### 45 
-And he shall pitch his palatial tents between the sea and the glorious holy mountain. Yet he shall come to his end, with none to help him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he shall pitch his palatial tents between the sea and the glorious holy mountain. Yet he shall come to his end, with none to help him. 
 
 ***
 

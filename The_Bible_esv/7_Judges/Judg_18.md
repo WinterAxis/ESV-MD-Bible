@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days there was no king in Israel. And in those days the tribe of the people of Dan was seeking for itself an inheritance to dwell in, for until then no inheritance among the tribes of Israel had fallen to them. 
 
@@ -96,7 +95,7 @@ And they named the city Dan, after the name of Dan their ancestor, who was born 
 And the people of Dan set up the carved image for themselves, and Jonathan the son of Gershom, son of Moses, and his sons were priests to the tribe of the Danites until the day of the captivity of the land. 
 
 ###### 31 
-So they set up Micah's carved image that he made, as long as the house of God was at Shiloh. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they set up Micah's carved image that he made, as long as the house of God was at Shiloh. 
 
 ***
 

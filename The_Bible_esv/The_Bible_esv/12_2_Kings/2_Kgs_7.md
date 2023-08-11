@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But Elisha said, "Hear the word of the LORD: thus says the LORD, Tomorrow about this time a seah of fine flour shall be sold for a shekel, and two seahs of barley for a shekel, at the gate of Samaria." 
 
@@ -63,7 +62,7 @@ For when the man of God had said to the king, "Two seahs of barley shall be sold
 the captain had answered the man of God, "If the LORD himself should make windows in heaven, could such a thing be?" And he had said, "You shall see it with your own eyes, but you shall not eat of it." 
 
 ###### 20 
-And so it happened to him, for the people trampled him in the gate and he died. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And so it happened to him, for the people trampled him in the gate and he died. 
 
 ***
 

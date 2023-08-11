@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the heads of their fathers' houses, and this is the genealogy of those who went up with me from Babylonia, in the reign of Artaxerxes the king: 
 
@@ -111,7 +110,7 @@ The whole was counted and weighed, and the weight of everything was recorded.
 At that time those who had come from captivity, the returned exiles, offered burnt offerings to the God of Israel, twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and as a sin offering twelve male goats. All this was a burnt offering to the LORD. 
 
 ###### 36 
-They also delivered the king's commissions to the king's satraps and to the governors of the province Beyond the River, and they aided the people and the house of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They also delivered the king's commissions to the king's satraps and to the governors of the province Beyond the River, and they aided the people and the house of God. 
 
 ***
 

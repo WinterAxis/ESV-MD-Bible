@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle concerning the wilderness of the sea. As whirlwinds in the Negeb sweep on, it comes from the wilderness, from a terrible land. 
 
@@ -54,7 +53,7 @@ For they have fled from the swords, from the drawn sword, from the bent bow, and
 For thus the Lord said to me, "Within a year, according to the years of a hired worker, all the glory of Kedar will come to an end. 
 
 ###### 17 
-And the remainder of the archers of the mighty men of the sons of Kedar will be few, for the LORD, the God of Israel, has spoken." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the remainder of the archers of the mighty men of the sons of Kedar will be few, for the LORD, the God of Israel, has spoken." 
 
 ***
 

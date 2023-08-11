@@ -147,7 +147,7 @@ So the Jews said to him, "You are not yet fifty years old, and have you seen Abr
 Jesus said to them, **"Truly, truly, I say to you, before Abraham was, I am."** 
 
 ###### 59 
-So they picked up stones to throw at him, but Jesus hid himself and went out of the temple. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they picked up stones to throw at him, but Jesus hid himself and went out of the temple. 
 
 ***
 

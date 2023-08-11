@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses and Aaron, saying, 
 
@@ -102,7 +101,7 @@ And the priest shall use one for a sin offering and the other for a burnt offeri
 This is the law for him who has a discharge and for him who has an emission of semen, becoming unclean thereby; 
 
 ###### 33 
-also for her who is unwell with her menstrual impurity, that is, for anyone, male or female, who has a discharge, and for the man who lies with a woman who is unclean. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+also for her who is unwell with her menstrual impurity, that is, for anyone, male or female, who has a discharge, and for the man who lies with a woman who is unclean. 
 
 ***
 

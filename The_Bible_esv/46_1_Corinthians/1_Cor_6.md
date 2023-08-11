@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When one of you has a grievance against another, does he dare go to law before the unrighteous instead of the saints? 
 
@@ -63,7 +62,7 @@ Flee from sexual immorality. Every other sin a person commits is outside the bod
 Or do you not know that your body is a temple of the Holy Spirit within you, whom you have from God? You are not your own, 
 
 ###### 20 
-for you were bought with a price. So glorify God in your body. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+for you were bought with a price. So glorify God in your body. 
 
 ***
 

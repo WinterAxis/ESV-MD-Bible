@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Hear this, O priests! Pay attention, O house of Israel! Give ear, O house of the king! For the judgment is for you; for you have been a snare at Mizpah and a net spread upon Tabor. 
 
@@ -48,7 +47,7 @@ When Ephraim saw his sickness, and Judah his wound, then Ephraim went to Assyria
 For I will be like a lion to Ephraim, and like a young lion to the house of Judah. I, even I, will tear and go away; I will carry off, and no one shall rescue. 
 
 ###### 15 
-I will return again to my place, until they acknowledge their guilt and seek my face, and in their distress earnestly seek me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will return again to my place, until they acknowledge their guilt and seek my face, and in their distress earnestly seek me. 
 
 ***
 

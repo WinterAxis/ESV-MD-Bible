@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So Moses continued to speak these words to all Israel. 
 
@@ -93,7 +92,7 @@ Assemble to me all the elders of your tribes and your officers, that I may speak
 For I know that after my death you will surely act corruptly and turn aside from the way that I have commanded you. And in the days to come evil will befall you, because you will do what is evil in the sight of the LORD, provoking him to anger through the work of your hands." ## The Song of Moses 
 
 ###### 30 
-Then Moses spoke the words of this song until they were finished, in the ears of all the assembly of Israel: ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Moses spoke the words of this song until they were finished, in the ears of all the assembly of Israel: 
 
 ***
 

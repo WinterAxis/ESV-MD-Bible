@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came from the LORD: 
 
@@ -75,7 +74,7 @@ Then King Jehoiakim sent to Egypt certain men, Elnathan the son of Achbor and ot
 and they took Uriah from Egypt and brought him to King Jehoiakim, who struck him down with the sword and dumped his dead body into the burial place of the common people. 
 
 ###### 24 
-But the hand of Ahikam the son of Shaphan was with Jeremiah so that he was not given over to the people to be put to death. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But the hand of Ahikam the son of Shaphan was with Jeremiah so that he was not given over to the people to be put to death. 
 
 ***
 

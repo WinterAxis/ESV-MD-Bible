@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the thirtieth year, in the fourth month, on the fifth day of the month, as I was among the exiles by the Chebar canal, the heavens were opened, and I saw visions of God. 
 
@@ -87,7 +86,7 @@ And above the expanse over their heads there was the likeness of a throne, in ap
 And upward from what had the appearance of his waist I saw as it were gleaming metal, like the appearance of fire enclosed all around. And downward from what had the appearance of his waist I saw as it were the appearance of fire, and there was brightness around him. 
 
 ###### 28 
-Like the appearance of the bow that is in the cloud on the day of rain, so was the appearance of the brightness all around. Such was the appearance of the likeness of the glory of the LORD. And when I saw it, I fell on my face, and I heard the voice of one speaking. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Like the appearance of the bow that is in the cloud on the day of rain, so was the appearance of the brightness all around. Such was the appearance of the likeness of the glory of the LORD. And when I saw it, I fell on my face, and I heard the voice of one speaking. 
 
 ***
 

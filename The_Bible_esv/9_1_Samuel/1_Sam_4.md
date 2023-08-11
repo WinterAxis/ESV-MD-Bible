@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the word of Samuel came to all Israel. Now Israel went out to battle against the Philistines. They encamped at Ebenezer, and the Philistines encamped at Aphek. 
 
@@ -69,7 +68,7 @@ And about the time of her death the women attending her said to her, "Do not be 
 And she named the child Ichabod, saying, "The glory has departed from Israel!" because the ark of God had been captured and because of her father-in-law and her husband. 
 
 ###### 22 
-And she said, "The glory has departed from Israel, for the ark of God has been captured." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And she said, "The glory has departed from Israel, for the ark of God has been captured." 
 
 ***
 

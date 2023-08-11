@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the first year of Cyrus king of Persia, that the word of the LORD by the mouth of Jeremiah might be fulfilled, the LORD stirred up the spirit of Cyrus king of Persia, so that he made a proclamation throughout all his kingdom and also put it in writing: 
 
@@ -36,7 +35,7 @@ And this was the number of them: 30 basins of gold, 1,000 basins of silver, 29 c
 30 bowls of gold, 410 bowls of silver, and 1,000 other vessels; 
 
 ###### 11 
-all the vessels of gold and of silver were 5,400. All these did Sheshbazzar bring up, when the exiles were brought up from Babylonia to Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+all the vessels of gold and of silver were 5,400. All these did Sheshbazzar bring up, when the exiles were brought up from Babylonia to Jerusalem. 
 
 ***
 

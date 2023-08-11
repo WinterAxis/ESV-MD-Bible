@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD: 
 
@@ -72,7 +71,7 @@ Therefore thus says the LORD concerning the men of Anathoth, who seek your life,
 therefore thus says the LORD of hosts: "Behold, I will punish them. The young men shall die by the sword, their sons and their daughters shall die by famine, 
 
 ###### 23 
-and none of them shall be left. For I will bring disaster upon the men of Anathoth, the year of their punishment." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and none of them shall be left. For I will bring disaster upon the men of Anathoth, the year of their punishment." 
 
 ***
 

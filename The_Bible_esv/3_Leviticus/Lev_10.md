@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Nadab and Abihu, the sons of Aaron, each took his censer and put fire in it and laid incense on it and offered unauthorized fire before the LORD, which he had not commanded them. 
 
@@ -63,7 +62,7 @@ Behold, its blood was not brought into the inner part of the sanctuary. You cert
 And Aaron said to Moses, "Behold, today they have offered their sin offering and their burnt offering before the LORD, and yet such things as these have happened to me! If I had eaten the sin offering today, would the LORD have approved?" 
 
 ###### 20 
-And when Moses heard that, he approved. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And when Moses heard that, he approved. 
 
 ***
 

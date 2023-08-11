@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -72,7 +71,7 @@ I will summon a sword against Gog on all my mountains, declares the Lord God. Ev
 With pestilence and bloodshed I will enter into judgment with him, and I will rain upon him and his hordes and the many peoples who are with him torrential rains and hailstones, fire and sulfur. 
 
 ###### 23 
-So I will show my greatness and my holiness and make myself known in the eyes of many nations. Then they will know that I am the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So I will show my greatness and my holiness and make myself known in the eyes of many nations. Then they will know that I am the LORD. 
 
 ***
 

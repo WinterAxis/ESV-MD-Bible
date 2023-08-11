@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the point in what we are saying is this: we have such a high priest, one who is seated at the right hand of the throne of the Majesty in heaven, 
 
@@ -42,7 +41,7 @@ And they shall not teach, each one his neighbor and each one his brother, saying
 For I will be merciful toward their iniquities, and I will remember their sins no more." 
 
 ###### 13 
-In speaking of a new covenant, he makes the first one obsolete. And what is becoming obsolete and growing old is ready to vanish away. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In speaking of a new covenant, he makes the first one obsolete. And what is becoming obsolete and growing old is ready to vanish away. 
 
 ***
 

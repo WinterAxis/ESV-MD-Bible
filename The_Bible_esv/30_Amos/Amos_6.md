@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Woe to those who are at ease in Zion, and to those who feel secure on the mountain of Samaria, the notable men of the first of the nations, to whom the house of Israel comes! 
 
@@ -45,7 +44,7 @@ Do horses run on rocks? Does one plow there with oxen? But you have turned justi
 you who rejoice in Lo-debar, who say, "Have we not by our own strength captured Karnaim for ourselves?" 
 
 ###### 14 
-"For behold, I will raise up against you a nation, O house of Israel," declares the LORD, the God of hosts; "and they shall oppress you from Lebo-hamath to the Brook of the Arabah." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"For behold, I will raise up against you a nation, O house of Israel," declares the LORD, the God of hosts; "and they shall oppress you from Lebo-hamath to the Brook of the Arabah." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal the son of Shelemiah, and Pashhur the son of Malchiah heard the words that Jeremiah was saying to all the people: 
 
@@ -87,7 +86,7 @@ then you shall say to them, 'I made a humble plea to the king that he would not 
 Then all the officials came to Jeremiah and asked him, and he answered them as the king had instructed him. So they stopped speaking with him, for the conversation had not been overheard. 
 
 ###### 28 
-And Jeremiah remained in the court of the guard until the day that Jerusalem was taken. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Jeremiah remained in the court of the guard until the day that Jerusalem was taken. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "If you return, O Israel, declares the LORD, to me you should return. If you remove your detestable things from my presence, and do not waver, 
 
@@ -96,7 +95,7 @@ At the noise of horseman and archer every city takes to flight; they enter thick
 And you, O desolate one, what do you mean that you dress in scarlet, that you adorn yourself with ornaments of gold, that you enlarge your eyes with paint? In vain you beautify yourself. Your lovers despise you; they seek your life. 
 
 ###### 31 
-For I heard a cry as of a woman in labor, anguish as of one giving birth to her first child, the cry of the daughter of Zion gasping for breath, stretching out her hands, "Woe is me! I am fainting before murderers." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For I heard a cry as of a woman in labor, anguish as of one giving birth to her first child, the cry of the daughter of Zion gasping for breath, stretching out her hands, "Woe is me! I am fainting before murderers." 
 
 ***
 

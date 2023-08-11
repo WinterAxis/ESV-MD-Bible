@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Behold, the LORD will empty the earth and make it desolate, and he will twist its surface and scatter its inhabitants. 
 
@@ -72,7 +71,7 @@ On that day the LORD will punish the host of heaven, in heaven, and the kings of
 They will be gathered together as prisoners in a pit; they will be shut up in a prison, and after many days they will be punished. 
 
 ###### 23 
-Then the moon will be confounded and the sun ashamed, for the LORD of hosts reigns on Mount Zion and in Jerusalem, and his glory will be before his elders. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the moon will be confounded and the sun ashamed, for the LORD of hosts reigns on Mount Zion and in Jerusalem, and his glory will be before his elders. 
 
 ***
 

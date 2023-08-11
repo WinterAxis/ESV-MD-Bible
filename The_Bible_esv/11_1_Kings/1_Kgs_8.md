@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Solomon assembled the elders of Israel and all the heads of the tribes, the leaders of the fathers' houses of the people of Israel, before King Solomon in Jerusalem, to bring up the ark of the covenant of the LORD out of the city of David, which is Zion. 
 
@@ -201,7 +200,7 @@ The same day the king consecrated the middle of the court that was before the ho
 So Solomon held the feast at that time, and all Israel with him, a great assembly, from Lebo-hamath to the Brook of Egypt, before the LORD our God, seven days. 
 
 ###### 66 
-On the eighth day he sent the people away, and they blessed the king and went to their homes joyful and glad of heart for all the goodness that the LORD had shown to David his servant and to Israel his people. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+On the eighth day he sent the people away, and they blessed the king and went to their homes joyful and glad of heart for all the goodness that the LORD had shown to David his servant and to Israel his people. 
 
 ***
 

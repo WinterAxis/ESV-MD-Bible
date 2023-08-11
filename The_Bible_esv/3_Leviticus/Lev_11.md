@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses and Aaron, saying to them, 
 
@@ -144,7 +143,7 @@ For I am the LORD who brought you up out of the land of Egypt to be your God. Yo
 This is the law about beast and bird and every living creature that moves through the waters and every creature that swarms on the ground, 
 
 ###### 47 
-to make a distinction between the unclean and the clean and between the living creature that may be eaten and the living creature that may not be eaten. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+to make a distinction between the unclean and the clean and between the living creature that may be eaten and the living creature that may not be eaten. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After these things the word of the LORD came to Abram in a vision: "Fear not, Abram, I am your shield; your reward shall be very great." 
 
@@ -66,7 +65,7 @@ the land of the Kenites, the Kenizzites, the Kadmonites,
 the Hittites, the Perizzites, the Rephaim, 
 
 ###### 21 
-the Amorites, the Canaanites, the Girgashites and the Jebusites." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+the Amorites, the Canaanites, the Girgashites and the Jebusites." 
 
 ***
 

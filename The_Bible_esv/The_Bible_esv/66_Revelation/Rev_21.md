@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then I saw a new heaven and a new earth, for the first heaven and the first earth had passed away, and the sea was no more. 
 
@@ -84,7 +83,7 @@ and its gates will never be shut by day--and there will be no night there.
 They will bring into it the glory and the honor of the nations. 
 
 ###### 27 
-But nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those who are written in the Lamb's book of life. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those who are written in the Lamb's book of life. 
 
 ***
 

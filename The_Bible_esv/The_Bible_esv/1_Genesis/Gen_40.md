@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Some time after this, the cupbearer of the king of Egypt and his baker committed an offense against their lord the king of Egypt. 
 
@@ -72,7 +71,7 @@ He restored the chief cupbearer to his position, and he placed the cup in Pharao
 But he hanged the chief baker, as Joseph had interpreted to them. 
 
 ###### 23 
-Yet the chief cupbearer did not remember Joseph, but forgot him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet the chief cupbearer did not remember Joseph, but forgot him. 
 
 ***
 

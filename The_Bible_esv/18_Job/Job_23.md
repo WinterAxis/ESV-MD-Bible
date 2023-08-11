@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Job answered and said: 
 
@@ -54,7 +53,7 @@ Therefore I am terrified at his presence; when I consider, I am in dread of him.
 God has made my heart faint; the Almighty has terrified me; 
 
 ###### 17 
-yet I am not silenced because of the darkness, nor because thick darkness covers my face. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+yet I am not silenced because of the darkness, nor because thick darkness covers my face. 
 
 ***
 

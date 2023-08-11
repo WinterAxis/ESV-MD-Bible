@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the prophets, Haggai and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem, in the name of the God of Israel who was over them. 
 
@@ -54,7 +53,7 @@ and he said to him, "Take these vessels, go and put them in the temple that is i
 Then this Sheshbazzar came and laid the foundations of the house of God that is in Jerusalem, and from that time until now it has been in building, and it is not yet finished.' 
 
 ###### 17 
-Therefore, if it seems good to the king, let search be made in the royal archives there in Babylon, to see whether a decree was issued by Cyrus the king for the rebuilding of this house of God in Jerusalem. And let the king send us his pleasure in this matter." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore, if it seems good to the king, let search be made in the royal archives there in Babylon, to see whether a decree was issued by Cyrus the king for the rebuilding of this house of God in Jerusalem. And let the king send us his pleasure in this matter." 
 
 ***
 

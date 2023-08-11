@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Behold, I send my messenger, and he will prepare the way before me. And the Lord whom you seek will suddenly come to his temple; and the messenger of the covenant in whom you delight, behold, he is coming, says the LORD of hosts. 
 
@@ -57,7 +56,7 @@ Then those who feared the LORD spoke with one another. The LORD paid attention a
 "They shall be mine, says the LORD of hosts, in the day when I make up my treasured possession, and I will spare them as a man spares his son who serves him. 
 
 ###### 18 
-Then once more you shall see the distinction between the righteous and the wicked, between one who serves God and one who does not serve him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then once more you shall see the distinction between the righteous and the wicked, between one who serves God and one who does not serve him. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "At that time the LORD said to me, 'Cut for yourself two tablets of stone like the first, and come up to me on the mountain and make an ark of wood. 
 
@@ -69,7 +68,7 @@ You shall fear the LORD your God. You shall serve him and hold fast to him, and 
 He is your praise. He is your God, who has done for you these great and terrifying things that your eyes have seen. 
 
 ###### 22 
-Your fathers went down to Egypt seventy persons, and now the LORD your God has made you as numerous as the stars of heaven. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Your fathers went down to Egypt seventy persons, and now the LORD your God has made you as numerous as the stars of heaven. 
 
 ***
 

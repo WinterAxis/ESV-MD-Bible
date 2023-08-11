@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Now this is the commandment--the statutes and the rules--that the LORD your God commanded me to teach you, that you may do them in the land to which you are going over, to possess it, 
 
@@ -78,7 +77,7 @@ And he brought us out from there, that he might bring us in and give us the land
 And the LORD commanded us to do all these statutes, to fear the LORD our God, for our good always, that he might preserve us alive, as we are this day. 
 
 ###### 25 
-And it will be righteousness for us, if we are careful to do all this commandment before the LORD our God, as he has commanded us.' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And it will be righteousness for us, if we are careful to do all this commandment before the LORD our God, as he has commanded us.' 
 
 ***
 

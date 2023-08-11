@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Then we turned and went up the way to Bashan. And Og the king of Bashan came out against us, he and all his people, to battle at Edrei. 
 
@@ -90,7 +89,7 @@ Go up to the top of Pisgah and lift up your eyes westward and northward and sout
 But charge Joshua, and encourage and strengthen him, for he shall go over at the head of this people, and he shall put them in possession of the land that you shall see.' 
 
 ###### 29 
-So we remained in the valley opposite Beth-peor. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So we remained in the valley opposite Beth-peor. 
 
 ***
 

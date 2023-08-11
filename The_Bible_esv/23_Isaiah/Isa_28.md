@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Ah, the proud crown of the drunkards of Ephraim, and the fading flower of its glorious beauty, which is on the head of the rich valley of those overcome with wine! 
 
@@ -90,7 +89,7 @@ Dill is not threshed with a threshing sledge, nor is a cart wheel rolled over cu
 Does one crush grain for bread? No, he does not thresh it forever; when he drives his cart wheel over it with his horses, he does not crush it. 
 
 ###### 29 
-This also comes from the LORD of hosts; he is wonderful in counsel and excellent in wisdom. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+This also comes from the LORD of hosts; he is wonderful in counsel and excellent in wisdom. 
 
 ***
 

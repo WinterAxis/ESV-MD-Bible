@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the ninth year, in the tenth month, on the tenth day of the month, the word of the LORD came to me: 
 
@@ -84,7 +83,7 @@ Thus shall Ezekiel be to you a sign; according to all that he has done you shall
 on that day a fugitive will come to you to report to you the news. 
 
 ###### 27 
-On that day your mouth will be opened to the fugitive, and you shall speak and be no longer mute. So you will be a sign to them, and they will know that I am the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+On that day your mouth will be opened to the fugitive, and you shall speak and be no longer mute. So you will be a sign to them, and they will know that I am the LORD." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the year that King Uzziah died I saw the Lord sitting upon a throne, high and lifted up; and the train of his robe filled the temple. 
 
@@ -42,7 +41,7 @@ Then I said, "How long, O Lord?" And he said: "Until cities lie waste without in
 and the LORD removes people far away, and the forsaken places are many in the midst of the land. 
 
 ###### 13 
-And though a tenth remain in it, it will be burned again, like a terebinth or an oak, whose stump remains when it is felled." The holy seed is its stump. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And though a tenth remain in it, it will be burned again, like a terebinth or an oak, whose stump remains when it is felled." The holy seed is its stump. 
 
 ***
 

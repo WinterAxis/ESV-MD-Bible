@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD said to Moses, 
 
@@ -123,7 +122,7 @@ Its tongs and their trays shall be of pure gold.
 It shall be made, with all these utensils, out of a talent of pure gold. 
 
 ###### 40 
-And see that you make them after the pattern for them, which is being shown you on the mountain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And see that you make them after the pattern for them, which is being shown you on the mountain. 
 
 ***
 

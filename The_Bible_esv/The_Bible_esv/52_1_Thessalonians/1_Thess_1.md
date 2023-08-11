@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, Silvanus, and Timothy, To the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace. ## The Thessalonians' Faith and Example 
 
@@ -33,7 +32,7 @@ For not only has the word of the Lord sounded forth from you in Macedonia and Ac
 For they themselves report concerning us the kind of reception we had among you, and how you turned to God from idols to serve the living and true God, 
 
 ###### 10 
-and to wait for his Son from heaven, whom he raised from the dead, Jesus who delivers us from the wrath to come. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and to wait for his Son from heaven, whom he raised from the dead, Jesus who delivers us from the wrath to come. 
 
 ***
 

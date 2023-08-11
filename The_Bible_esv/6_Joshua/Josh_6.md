@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Jericho was shut up inside and outside because of the people of Israel. None went out, and none came in. 
 
@@ -84,7 +83,7 @@ But Rahab the prostitute and her father's household and all who belonged to her,
 Joshua laid an oath on them at that time, saying, "Cursed before the LORD be the man who rises up and rebuilds this city, Jericho. "At the cost of his firstborn shall he lay its foundation, and at the cost of his youngest son shall he set up its gates." 
 
 ###### 27 
-So the LORD was with Joshua, and his fame was in all the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the LORD was with Joshua, and his fame was in all the land. 
 
 ***
 

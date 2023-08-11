@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD visited Sarah as he had said, and the LORD did to Sarah as he had promised. 
 
@@ -105,7 +104,7 @@ So they made a covenant at Beersheba. Then Abimelech and Phicol the commander of
 Abraham planted a tamarisk tree in Beersheba and called there on the name of the LORD, the Everlasting God. 
 
 ###### 34 
-And Abraham sojourned many days in the land of the Philistines. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And Abraham sojourned many days in the land of the Philistines. 
 
 ***
 

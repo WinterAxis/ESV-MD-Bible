@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And Jesus, full of the Holy Spirit, returned from the Jordan and was led by the Spirit in the wilderness 
 
@@ -135,7 +134,7 @@ And when it was day, he departed and went into a desolate place. And the people 
 but he said to them, **"I must preach the good news of the kingdom of God to the other towns as well; for I was sent for this purpose."** 
 
 ###### 44 
-And he was preaching in the synagogues of Judea. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he was preaching in the synagogues of Judea. 
 
 ***
 

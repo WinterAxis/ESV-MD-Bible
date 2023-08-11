@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Woe to the shepherds who destroy and scatter the sheep of my pasture!" declares the LORD. 
 
@@ -123,7 +122,7 @@ But if you say, 'The burden of the LORD,' thus says the LORD, 'Because you have 
 therefore, behold, I will surely lift you up and cast you away from my presence, you and the city that I gave to you and your fathers. 
 
 ###### 40 
-And I will bring upon you everlasting reproach and perpetual shame, which shall not be forgotten.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will bring upon you everlasting reproach and perpetual shame, which shall not be forgotten.'" 
 
 ***
 

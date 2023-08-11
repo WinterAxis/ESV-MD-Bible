@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now after the Sabbath, toward the dawn of the first day of the week, Mary Magdalene and the other Mary went to see the tomb. 
 
@@ -63,7 +62,7 @@ And Jesus came and said to them, **"All authority in heaven and on earth has bee
 Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 
 
 ###### 20 
-teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age." 
 
 ***
 

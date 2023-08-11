@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I charge you in the presence of God and of Christ Jesus, who is to judge the living and the dead, and by his appearing and his kingdom: 
 
@@ -69,7 +68,7 @@ Erastus remained at Corinth, and I left Trophimus, who was ill, at Miletus.
 Do your best to come before winter. Eubulus sends greetings to you, as do Pudens and Linus and Claudia and all the brothers. 
 
 ###### 22 
-The Lord be with your spirit. Grace be with you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The Lord be with your spirit. Grace be with you. 
 
 ***
 

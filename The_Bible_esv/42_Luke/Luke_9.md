@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he called the twelve together and gave them power and authority over all demons and to cure diseases, 
 
@@ -189,7 +188,7 @@ And Jesus said to him, **"Leave the dead to bury their own dead. But as for you,
 Yet another said, "I will follow you, Lord, but let me first say farewell to those at my home." 
 
 ###### 62 
-Jesus said to him, **"No one who puts his hand to the plow and looks back is fit for the kingdom of God."** ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Jesus said to him, **"No one who puts his hand to the plow and looks back is fit for the kingdom of God."** 
 
 ***
 

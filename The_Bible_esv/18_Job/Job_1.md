@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There was a man in the land of Uz whose name was Job, and that man was blameless and upright, one who feared God and turned away from evil. 
 
@@ -69,7 +68,7 @@ Then Job arose and tore his robe and shaved his head and fell on the ground and 
 And he said, "Naked I came from my mother's womb, and naked shall I return. The LORD gave, and the LORD has taken away; blessed be the name of the LORD." 
 
 ###### 22 
-In all this Job did not sin or charge God with wrong. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In all this Job did not sin or charge God with wrong. 
 
 ***
 

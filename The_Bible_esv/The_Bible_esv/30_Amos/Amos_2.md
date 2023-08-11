@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD: "For three transgressions of Moab, and for four, I will not revoke the punishment, because he burned to lime the bones of the king of Edom. 
 
@@ -51,7 +50,7 @@ Flight shall perish from the swift, and the strong shall not retain his strength
 he who handles the bow shall not stand, and he who is swift of foot shall not save himself, nor shall he who rides the horse save his life; 
 
 ###### 16 
-and he who is stout of heart among the mighty shall flee away naked in that day," declares the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and he who is stout of heart among the mighty shall flee away naked in that day," declares the LORD. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the names of the sons of Israel who came to Egypt with Jacob, each with his household: 
 
@@ -69,7 +68,7 @@ So God dealt well with the midwives. And the people multiplied and grew very str
 And because the midwives feared God, he gave them families. 
 
 ###### 22 
-Then Pharaoh commanded all his people, "Every son that is born to the Hebrews you shall cast into the Nile, but you shall let every daughter live." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Pharaoh commanded all his people, "Every son that is born to the Hebrews you shall cast into the Nile, but you shall let every daughter live." 
 
 ***
 

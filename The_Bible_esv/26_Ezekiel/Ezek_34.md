@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to me: 
 
@@ -96,7 +95,7 @@ And I will provide for them renowned plantations so that they shall no more be c
 And they shall know that I am the LORD their God with them, and that they, the house of Israel, are my people, declares the Lord God. 
 
 ###### 31 
-And you are my sheep, human sheep of my pasture, and I am your God, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you are my sheep, human sheep of my pasture, and I am your God, declares the Lord God." 
 
 ***
 

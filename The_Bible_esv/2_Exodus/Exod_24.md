@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he said to Moses, "Come up to the LORD, you and Aaron, Nadab, and Abihu, and seventy of the elders of Israel, and worship from afar. 
 
@@ -57,7 +56,7 @@ The glory of the LORD dwelt on Mount Sinai, and the cloud covered it six days. A
 Now the appearance of the glory of the LORD was like a devouring fire on the top of the mountain in the sight of the people of Israel. 
 
 ###### 18 
-Moses entered the cloud and went up on the mountain. And Moses was on the mountain forty days and forty nights. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moses entered the cloud and went up on the mountain. And Moses was on the mountain forty days and forty nights. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the famine was severe in the land. 
 
@@ -105,7 +104,7 @@ They served him by himself, and them by themselves, and the Egyptians who ate wi
 And they sat before him, the firstborn according to his birthright and the youngest according to his youth. And the men looked at one another in amazement. 
 
 ###### 34 
-Portions were taken to them from Joseph's table, but Benjamin's portion was five times as much as any of theirs. And they drank and were merry with him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Portions were taken to them from Joseph's table, but Benjamin's portion was five times as much as any of theirs. And they drank and were merry with him. 
 
 ***
 

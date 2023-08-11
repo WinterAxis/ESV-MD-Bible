@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the second year of Darius the king, in the sixth month, on the first day of the month, the word of the LORD came by the hand of Haggai the prophet to Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son of Jehozadak, the high priest: 
 
@@ -48,7 +47,7 @@ Then Haggai, the messenger of the LORD, spoke to the people with the LORD's mess
 And the LORD stirred up the spirit of Zerubbabel the son of Shealtiel, governor of Judah, and the spirit of Joshua the son of Jehozadak, the high priest, and the spirit of all the remnant of the people. And they came and worked on the house of the LORD of hosts, their God, 
 
 ###### 15 
-on the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+on the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king. 
 
 ***
 

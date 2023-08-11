@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the word of the LORD came to me: 
 
@@ -27,7 +26,7 @@ Therefore thus says the Lord God: Like the wood of the vine among the trees of t
 And I will set my face against them. Though they escape from the fire, the fire shall yet consume them, and you will know that I am the LORD, when I set my face against them. 
 
 ###### 8 
-And I will make the land desolate, because they have acted faithlessly, declares the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will make the land desolate, because they have acted faithlessly, declares the Lord God." 
 
 ***
 

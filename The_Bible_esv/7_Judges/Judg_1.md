@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After the death of Joshua, the people of Israel inquired of the LORD, "Who shall go up first for us against the Canaanites, to fight against them?" 
 
@@ -111,7 +110,7 @@ The Amorites pressed the people of Dan back into the hill country, for they did 
 The Amorites persisted in dwelling in Mount Heres, in Aijalon, and in Shaalbim, but the hand of the house of Joseph rested heavily on them, and they became subject to forced labor. 
 
 ###### 36 
-And the border of the Amorites ran from the ascent of Akrabbim, from Sela and upward. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the border of the Amorites ran from the ascent of Akrabbim, from Sela and upward. 
 
 ***
 

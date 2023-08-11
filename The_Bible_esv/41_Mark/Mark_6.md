@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 He went away from there and came to his hometown, and his disciples followed him. 
 
@@ -171,7 +170,7 @@ And when they got out of the boat, the people immediately recognized him
 and ran about the whole region and began to bring the sick people on their beds to wherever they heard he was. 
 
 ###### 56 
-And wherever he came, in villages, cities, or countryside, they laid the sick in the marketplaces and implored him that they might touch even the fringe of his garment. And as many as touched it were made well. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And wherever he came, in villages, cities, or countryside, they laid the sick in the marketplaces and implored him that they might touch even the fringe of his garment. And as many as touched it were made well. 
 
 ***
 

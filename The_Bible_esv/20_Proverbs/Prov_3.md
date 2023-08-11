@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 My son, do not forget my teaching, but let your heart keep my commandments, 
 
@@ -108,7 +107,7 @@ The LORD's curse is on the house of the wicked, but he blesses the dwelling of t
 Toward the scorners he is scornful, but to the humble he gives favor. 
 
 ###### 35 
-The wise will inherit honor, but fools get disgrace. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The wise will inherit honor, but fools get disgrace. 
 
 ***
 

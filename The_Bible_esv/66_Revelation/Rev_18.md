@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this I saw another angel coming down from heaven, having great authority, and the earth was made bright with his glory. 
 
@@ -75,7 +74,7 @@ and the sound of harpists and musicians, of flute players and trumpeters, will b
 and the light of a lamp will shine in you no more, and the voice of bridegroom and bride will be heard in you no more, for your merchants were the great ones of the earth, and all nations were deceived by your sorcery. 
 
 ###### 24 
-And in her was found the blood of prophets and of saints, and of all who have been slain on earth." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And in her was found the blood of prophets and of saints, and of all who have been slain on earth." 
 
 ***
 

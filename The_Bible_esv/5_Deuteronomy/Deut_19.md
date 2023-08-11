@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When the LORD your God cuts off the nations whose land the LORD your God is giving you, and you dispossess them and dwell in their cities and in their houses, 
 
@@ -66,7 +65,7 @@ then you shall do to him as he had meant to do to his brother. So you shall purg
 And the rest shall hear and fear, and shall never again commit any such evil among you. 
 
 ###### 21 
-Your eye shall not pity. It shall be life for life, eye for eye, tooth for tooth, hand for hand, foot for foot. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Your eye shall not pity. It shall be life for life, eye for eye, tooth for tooth, hand for hand, foot for foot. 
 
 ***
 

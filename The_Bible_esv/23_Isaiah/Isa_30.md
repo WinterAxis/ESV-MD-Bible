@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Ah, stubborn children," declares the LORD, "who carry out a plan, but not mine, and who make an alliance, but not of my Spirit, that they may add sin to sin; 
 
@@ -99,7 +98,7 @@ The Assyrians will be terror-stricken at the voice of the LORD, when he strikes 
 And every stroke of the appointed staff that the LORD lays on them will be to the sound of tambourines and lyres. Battling with brandished arm, he will fight with them. 
 
 ###### 33 
-For a burning place has long been prepared; indeed, for the king it is made ready, its pyre made deep and wide, with fire and wood in abundance; the breath of the LORD, like a stream of sulfur, kindles it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For a burning place has long been prepared; indeed, for the king it is made ready, its pyre made deep and wide, with fire and wood in abundance; the breath of the LORD, like a stream of sulfur, kindles it. 
 
 ***
 

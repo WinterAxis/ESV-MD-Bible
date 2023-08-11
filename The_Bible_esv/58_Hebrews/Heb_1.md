@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Long ago, at many times and in many ways, God spoke to our fathers by the prophets, 
 
@@ -45,7 +44,7 @@ like a robe you will roll them up, like a garment they will be changed. But you 
 And to which of the angels has he ever said, "Sit at my right hand until I make your enemies a footstool for your feet"? 
 
 ###### 14 
-Are they not all ministering spirits sent out to serve for the sake of those who are to inherit salvation? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Are they not all ministering spirits sent out to serve for the sake of those who are to inherit salvation? 
 
 ***
 

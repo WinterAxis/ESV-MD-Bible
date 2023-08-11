@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Man who is born of a woman is few of days and full of trouble. 
 
@@ -69,7 +68,7 @@ You prevail forever against him, and he passes; you change his countenance, and 
 His sons come to honor, and he does not know it; they are brought low, and he perceives it not. 
 
 ###### 22 
-He feels only the pain of his own body, and he mourns only for himself." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He feels only the pain of his own body, and he mourns only for himself." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 An oracle concerning Damascus. Behold, Damascus will cease to be a city and will become a heap of ruins. 
 
@@ -45,7 +44,7 @@ Ah, the thunder of many peoples; they thunder like the thundering of the sea! Ah
 The nations roar like the roaring of many waters, but he will rebuke them, and they will flee far away, chased like chaff on the mountains before the wind and whirling dust before the storm. 
 
 ###### 14 
-At evening time, behold, terror! Before morning, they are no more! This is the portion of those who loot us, and the lot of those who plunder us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+At evening time, behold, terror! Before morning, they are no more! This is the portion of those who loot us, and the lot of those who plunder us. 
 
 ***
 

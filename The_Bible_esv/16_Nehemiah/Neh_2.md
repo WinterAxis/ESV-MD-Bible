@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the month of Nisan, in the twentieth year of King Artaxerxes, when wine was before him, I took up the wine and gave it to the king. Now I had not been sad in his presence. 
 
@@ -63,7 +62,7 @@ And I told them of the hand of my God that had been upon me for good, and also o
 But when Sanballat the Horonite and Tobiah the Ammonite servant and Geshem the Arab heard of it, they jeered at us and despised us and said, "What is this thing that you are doing? Are you rebelling against the king?" 
 
 ###### 20 
-Then I replied to them, "The God of heaven will make us prosper, and we his servants will arise and build, but you have no portion or right or claim in Jerusalem." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I replied to them, "The God of heaven will make us prosper, and we his servants will arise and build, but you have no portion or right or claim in Jerusalem." 
 
 ***
 

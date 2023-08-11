@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Job answered and said: 
 
@@ -108,7 +107,7 @@ There is no arbiter between us, who might lay his hand on us both.
 Let him take his rod away from me, and let not dread of him terrify me. 
 
 ###### 35 
-Then I would speak without fear of him, for I am not so in myself. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I would speak without fear of him, for I am not so in myself. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 How the Lord in his anger has set the daughter of Zion under a cloud! He has cast down from heaven to earth the splendor of Israel; he has not remembered his footstool in the day of his anger. 
 
@@ -69,7 +68,7 @@ Look, O LORD, and see! With whom have you dealt thus? Should women eat the fruit
 In the dust of the streets lie the young and the old; my young women and my young men have fallen by the sword; you have killed them in the day of your anger, slaughtering without pity. 
 
 ###### 22 
-You summoned as if to a festival day my terrors on every side, and on the day of the anger of the LORD no one escaped or survived; those whom I held and raised my enemy destroyed. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You summoned as if to a festival day my terrors on every side, and on the day of the anger of the LORD no one escaped or survived; those whom I held and raised my enemy destroyed. 
 
 ***
 

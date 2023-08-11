@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Are we beginning to commend ourselves again? Or do we need, as some do, letters of recommendation to you, or from you? 
 
@@ -57,7 +56,7 @@ But when one turns to the Lord, the veil is removed.
 Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. 
 
 ###### 18 
-And we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. 
 
 ***
 

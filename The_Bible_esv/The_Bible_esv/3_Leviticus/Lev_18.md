@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And the LORD spoke to Moses, saying, 
 
@@ -93,7 +92,7 @@ lest the land vomit you out when you make it unclean, as it vomited out the nati
 For everyone who does any of these abominations, the persons who do them shall be cut off from among their people. 
 
 ###### 30 
-So keep my charge never to practice any of these abominable customs that were practiced before you, and never to make yourselves unclean by them: I am the LORD your God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So keep my charge never to practice any of these abominable customs that were practiced before you, and never to make yourselves unclean by them: I am the LORD your God." 
 
 ***
 

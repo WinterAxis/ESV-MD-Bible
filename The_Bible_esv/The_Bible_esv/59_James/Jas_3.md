@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Not many of you should become teachers, my brothers, for you know that we who teach will be judged with greater strictness. 
 
@@ -57,7 +56,7 @@ For where jealousy and selfish ambition exist, there will be disorder and every 
 But the wisdom from above is first pure, then peaceable, gentle, open to reason, full of mercy and good fruits, impartial and sincere. 
 
 ###### 18 
-And a harvest of righteousness is sown in peace by those who make peace. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And a harvest of righteousness is sown in peace by those who make peace. 
 
 ***
 

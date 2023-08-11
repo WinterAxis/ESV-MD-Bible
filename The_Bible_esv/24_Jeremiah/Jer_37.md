@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Zedekiah the son of Josiah, whom Nebuchadnezzar king of Babylon made king in the land of Judah, reigned instead of Coniah the son of Jehoiakim. 
 
@@ -66,7 +65,7 @@ Where are your prophets who prophesied to you, saying, 'The king of Babylon will
 Now hear, please, O my lord the king: let my humble plea come before you and do not send me back to the house of Jonathan the secretary, lest I die there." 
 
 ###### 21 
-So King Zedekiah gave orders, and they committed Jeremiah to the court of the guard. And a loaf of bread was given him daily from the bakers' street, until all the bread of the city was gone. So Jeremiah remained in the court of the guard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So King Zedekiah gave orders, and they committed Jeremiah to the court of the guard. And a loaf of bread was given him daily from the bakers' street, until all the bread of the city was gone. So Jeremiah remained in the court of the guard. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the apostles and the brothers who were throughout Judea heard that the Gentiles also had received the word of God. 
 
@@ -93,7 +92,7 @@ And one of them named Agabus stood up and foretold by the Spirit that there woul
 So the disciples determined, every one according to his ability, to send relief to the brothers living in Judea. 
 
 ###### 30 
-And they did so, sending it to the elders by the hand of Barnabas and Saul. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they did so, sending it to the elders by the hand of Barnabas and Saul. 
 
 ***
 

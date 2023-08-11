@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Come now, you rich, weep and howl for the miseries that are coming upon you. 
 
@@ -63,7 +62,7 @@ Then he prayed again, and heaven gave rain, and the earth bore its fruit.
 My brothers, if anyone among you wanders from the truth and someone brings him back, 
 
 ###### 20 
-let him know that whoever brings back a sinner from his wandering will save his soul from death and will cover a multitude of sins. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+let him know that whoever brings back a sinner from his wandering will save his soul from death and will cover a multitude of sins. 
 
 ***
 

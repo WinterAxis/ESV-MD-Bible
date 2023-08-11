@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of Goiim, 
 
@@ -75,7 +74,7 @@ But Abram said to the king of Sodom, "I have lifted my hand to the LORD, God Mos
 that I would not take a thread or a sandal strap or anything that is yours, lest you should say, 'I have made Abram rich.' 
 
 ###### 24 
-I will take nothing but what the young men have eaten, and the share of the men who went with me. Let Aner, Eshcol, and Mamre take their share." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I will take nothing but what the young men have eaten, and the share of the men who went with me. Let Aner, Eshcol, and Mamre take their share." 
 
 ***
 

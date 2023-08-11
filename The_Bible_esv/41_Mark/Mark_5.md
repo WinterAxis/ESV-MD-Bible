@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 They came to the other side of the sea, to the country of the Gerasenes. 
 
@@ -132,7 +131,7 @@ Taking her by the hand he said to her, **"Talitha cumi,"** which means, **"Littl
 And immediately the girl got up and began walking (for she was twelve years of age), and they were immediately overcome with amazement. 
 
 ###### 43 
-And he strictly charged them that no one should know this, and told them to give her something to eat. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he strictly charged them that no one should know this, and told them to give her something to eat. 
 
 ***
 

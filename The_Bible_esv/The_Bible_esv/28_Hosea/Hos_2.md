@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Say to your brothers, "You are my people," and to your sisters, "You have received mercy." 
 
@@ -72,7 +71,7 @@ I will betroth you to me in faithfulness. And you shall know the LORD.
 and the earth shall answer the grain, the wine, and the oil, and they shall answer Jezreel, 
 
 ###### 23 
-and I will sow her for myself in the land. And I will have mercy on No Mercy, and I will say to Not My People, 'You are my people'; and he shall say, 'You are my God.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and I will sow her for myself in the land. And I will have mercy on No Mercy, and I will say to Not My People, 'You are my people'; and he shall say, 'You are my God.'" 
 
 ***
 

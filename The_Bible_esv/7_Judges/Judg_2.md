@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the angel of the LORD went up from Gilgal to Bochim. And he said, "I brought you up from Egypt and brought you into the land that I swore to give to your fathers. I said, 'I will never break my covenant with you, 
 
@@ -72,7 +71,7 @@ I will no longer drive out before them any of the nations that Joshua left when 
 in order to test Israel by them, whether they will take care to walk in the way of the LORD as their fathers did, or not." 
 
 ###### 23 
-So the LORD left those nations, not driving them out quickly, and he did not give them into the hand of Joshua. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So the LORD left those nations, not driving them out quickly, and he did not give them into the hand of Joshua. 
 
 ***
 

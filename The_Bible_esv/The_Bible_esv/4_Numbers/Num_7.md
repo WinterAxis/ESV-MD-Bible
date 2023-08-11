@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 On the day when Moses had finished setting up the tabernacle and had anointed and consecrated it with all its furnishings and had anointed and consecrated the altar with all its utensils, 
 
@@ -270,7 +269,7 @@ all the cattle for the burnt offering twelve bulls, twelve rams, twelve male lam
 and all the cattle for the sacrifice of peace offerings twenty-four bulls, the rams sixty, the male goats sixty, the male lambs a year old sixty. This was the dedication offering for the altar after it was anointed. 
 
 ###### 89 
-And when Moses went into the tent of meeting to speak with the LORD, he heard the voice speaking to him from above the mercy seat that was on the ark of the testimony, from between the two cherubim; and it spoke to him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And when Moses went into the tent of meeting to speak with the LORD, he heard the voice speaking to him from above the mercy seat that was on the ark of the testimony, from between the two cherubim; and it spoke to him. 
 
 ***
 

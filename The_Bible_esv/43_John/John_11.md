@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now a certain man was ill, Lazarus of Bethany, the village of Mary and her sister Martha. 
 
@@ -174,7 +173,7 @@ Now the Passover of the Jews was at hand, and many went up from the country to J
 They were looking for Jesus and saying to one another as they stood in the temple, "What do you think? That he will not come to the feast at all?" 
 
 ###### 57 
-Now the chief priests and the Pharisees had given orders that if anyone knew where he was, he should let them know, so that they might arrest him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now the chief priests and the Pharisees had given orders that if anyone knew where he was, he should let them know, so that they might arrest him. 
 
 ***
 

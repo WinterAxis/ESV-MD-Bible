@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And you, take up a lamentation for the princes of Israel, 
 
@@ -45,7 +44,7 @@ But the vine was plucked up in fury, cast down to the ground; the east wind drie
 Now it is planted in the wilderness, in a dry and thirsty land. 
 
 ###### 14 
-And fire has gone out from the stem of its shoots, has consumed its fruit, so that there remains in it no strong stem, no scepter for ruling. This is a lamentation and has become a lamentation. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And fire has gone out from the stem of its shoots, has consumed its fruit, so that there remains in it no strong stem, no scepter for ruling. This is a lamentation and has become a lamentation. 
 
 ***
 

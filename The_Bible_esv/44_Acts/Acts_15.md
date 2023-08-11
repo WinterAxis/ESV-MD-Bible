@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But some men came down from Judea and were teaching the brothers, "Unless you are circumcised according to the custom of Moses, you cannot be saved." 
 
@@ -120,7 +119,7 @@ And there arose a sharp disagreement, so that they separated from each other. Ba
 but Paul chose Silas and departed, having been commended by the brothers to the grace of the Lord. 
 
 ###### 41 
-And he went through Syria and Cilicia, strengthening the churches. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he went through Syria and Cilicia, strengthening the churches. 
 
 ***
 

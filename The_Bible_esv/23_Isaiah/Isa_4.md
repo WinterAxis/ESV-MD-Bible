@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And seven women shall take hold of one man in that day, saying, "We will eat our own bread and wear our own clothes, only let us be called by your name; take away our reproach." ## The Branch of the LORD Glorified 
 
@@ -21,7 +20,7 @@ when the Lord shall have washed away the filth of the daughters of Zion and clea
 Then the LORD will create over the whole site of Mount Zion and over her assemblies a cloud by day, and smoke and the shining of a flaming fire by night; for over all the glory there will be a canopy. 
 
 ###### 6 
-There will be a booth for shade by day from the heat, and for a refuge and a shelter from the storm and rain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+There will be a booth for shade by day from the heat, and for a refuge and a shelter from the storm and rain. 
 
 ***
 

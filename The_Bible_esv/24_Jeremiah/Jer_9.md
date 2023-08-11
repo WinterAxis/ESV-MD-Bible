@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Oh that my head were waters, and my eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people! 
 
@@ -81,7 +80,7 @@ but let him who boasts boast in this, that he understands and knows me, that I a
 "Behold, the days are coming, declares the LORD, when I will punish all those who are circumcised merely in the flesh-- 
 
 ###### 26 
-Egypt, Judah, Edom, the sons of Ammon, Moab, and all who dwell in the desert who cut the corners of their hair, for all these nations are uncircumcised, and all the house of Israel are uncircumcised in heart." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Egypt, Judah, Edom, the sons of Ammon, Moab, and all who dwell in the desert who cut the corners of their hair, for all these nations are uncircumcised, and all the house of Israel are uncircumcised in heart." 
 
 ***
 

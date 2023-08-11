@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Has not man a hard service on earth, and are not his days like the days of a hired hand? 
 
@@ -66,7 +65,7 @@ How long will you not look away from me, nor leave me alone till I swallow my sp
 If I sin, what do I do to you, you watcher of mankind? Why have you made me your mark? Why have I become a burden to you? 
 
 ###### 21 
-Why do you not pardon my transgression and take away my iniquity? For now I shall lie in the earth; you will seek me, but I shall not be." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Why do you not pardon my transgression and take away my iniquity? For now I shall lie in the earth; you will seek me, but I shall not be." 
 
 ***
 

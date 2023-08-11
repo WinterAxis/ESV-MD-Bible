@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Jerubbaal (that is, Gideon) and all the people who were with him rose early and encamped beside the spring of Harod. And the camp of Midian was north of them, by the hill of Moreh, in the valley. 
 
@@ -78,7 +77,7 @@ And the men of Israel were called out from Naphtali and from Asher and from all 
 Gideon sent messengers throughout all the hill country of Ephraim, saying, "Come down against the Midianites and capture the waters against them, as far as Beth-barah, and also the Jordan." So all the men of Ephraim were called out, and they captured the waters as far as Beth-barah, and also the Jordan. 
 
 ###### 25 
-And they captured the two princes of Midian, Oreb and Zeeb. They killed Oreb at the rock of Oreb, and Zeeb they killed at the winepress of Zeeb. Then they pursued Midian, and they brought the heads of Oreb and Zeeb to Gideon across the Jordan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they captured the two princes of Midian, Oreb and Zeeb. They killed Oreb at the rock of Oreb, and Zeeb they killed at the winepress of Zeeb. Then they pursued Midian, and they brought the heads of Oreb and Zeeb to Gideon across the Jordan. 
 
 ***
 

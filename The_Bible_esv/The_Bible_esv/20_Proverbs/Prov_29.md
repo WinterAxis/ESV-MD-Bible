@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 He who is often reproved, yet stiffens his neck, will suddenly be broken beyond healing. 
 
@@ -84,7 +83,7 @@ The fear of man lays a snare, but whoever trusts in the LORD is safe.
 Many seek the face of a ruler, but it is from the LORD that a man gets justice. 
 
 ###### 27 
-An unjust man is an abomination to the righteous, but one whose way is straight is an abomination to the wicked. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+An unjust man is an abomination to the righteous, but one whose way is straight is an abomination to the wicked. 
 
 ***
 

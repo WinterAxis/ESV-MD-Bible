@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But the LORD said to Moses, "Now you shall see what I will do to Pharaoh; for with a strong hand he will send them out, and with a strong hand he will drive them out of his land." 
 
@@ -93,7 +92,7 @@ On the day when the LORD spoke to Moses in the land of Egypt,
 the LORD said to Moses, "I am the LORD; tell Pharaoh king of Egypt all that I say to you." 
 
 ###### 30 
-But Moses said to the LORD, "Behold, I am of uncircumcised lips. How will Pharaoh listen to me?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But Moses said to the LORD, "Behold, I am of uncircumcised lips. How will Pharaoh listen to me?" 
 
 ***
 

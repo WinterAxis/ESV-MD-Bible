@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Brothers, my heart's desire and prayer to God for them is that they may be saved. 
 
@@ -66,7 +65,7 @@ But I ask, did Israel not understand? First Moses says, "I will make you jealous
 Then Isaiah is so bold as to say, "I have been found by those who did not seek me; I have shown myself to those who did not ask for me." 
 
 ###### 21 
-But of Israel he says, "All day long I have held out my hands to a disobedient and contrary people." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But of Israel he says, "All day long I have held out my hands to a disobedient and contrary people." 
 
 ***
 

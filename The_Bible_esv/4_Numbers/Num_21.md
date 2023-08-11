@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When the Canaanite, the king of Arad, who lived in the Negeb, heard that Israel was coming by the way of Atharim, he fought against Israel, and took some of them captive. 
 
@@ -108,7 +107,7 @@ Then they turned and went up by the way to Bashan. And Og the king of Bashan cam
 But the LORD said to Moses, "Do not fear him, for I have given him into your hand, and all his people, and his land. And you shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon." 
 
 ###### 35 
-So they defeated him and his sons and all his people, until he had no survivor left. And they possessed his land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they defeated him and his sons and all his people, until he had no survivor left. And they possessed his land. 
 
 ***
 

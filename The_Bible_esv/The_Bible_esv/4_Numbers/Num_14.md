@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then all the congregation raised a loud cry, and the people wept that night. 
 
@@ -138,7 +137,7 @@ For there the Amalekites and the Canaanites are facing you, and you shall fall b
 But they presumed to go up to the heights of the hill country, although neither the ark of the covenant of the LORD nor Moses departed out of the camp. 
 
 ###### 45 
-Then the Amalekites and the Canaanites who lived in that hill country came down and defeated them and pursued them, even to Hormah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then the Amalekites and the Canaanites who lived in that hill country came down and defeated them and pursued them, even to Hormah. 
 
 ***
 

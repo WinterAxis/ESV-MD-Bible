@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "My spirit is broken; my days are extinct; the graveyard is ready for me. 
 
@@ -51,7 +50,7 @@ if I say to the pit, 'You are my father,' and to the worm, 'My mother,' or 'My s
 where then is my hope? Who will see my hope? 
 
 ###### 16 
-Will it go down to the bars of Sheol? Shall we descend together into the dust?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Will it go down to the bars of Sheol? Shall we descend together into the dust?" 
 
 ***
 

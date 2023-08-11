@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The words of Jeremiah, the son of Hilkiah, one of the priests who were in Anathoth in the land of Benjamin, 
 
@@ -60,7 +59,7 @@ But you, dress yourself for work; arise, and say to them everything that I comma
 And I, behold, I make you this day a fortified city, an iron pillar, and bronze walls, against the whole land, against the kings of Judah, its officials, its priests, and the people of the land. 
 
 ###### 19 
-They will fight against you, but they shall not prevail against you, for I am with you, declares the LORD, to deliver you." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They will fight against you, but they shall not prevail against you, for I am with you, declares the LORD, to deliver you." 
 
 ***
 

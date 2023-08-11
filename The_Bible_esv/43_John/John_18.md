@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jesus had spoken these words, he went out with his disciples across the brook Kidron, where there was a garden, which he and his disciples entered. 
 
@@ -123,7 +122,7 @@ Pilate said to him, "What is truth?" After he had said this, he went back outsid
 But you have a custom that I should release one man for you at the Passover. So do you want me to release to you the King of the Jews?" 
 
 ###### 40 
-They cried out again, "Not this man, but Barabbas!" Now Barabbas was a robber. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+They cried out again, "Not this man, but Barabbas!" Now Barabbas was a robber. 
 
 ***
 

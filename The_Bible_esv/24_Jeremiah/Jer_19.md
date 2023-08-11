@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD, "Go, buy a potter's earthenware flask, and take some of the elders of the people and some of the elders of the priests, 
 
@@ -48,7 +47,7 @@ The houses of Jerusalem and the houses of the kings of Judah--all the houses on 
 Then Jeremiah came from Topheth, where the LORD had sent him to prophesy, and he stood in the court of the LORD's house and said to all the people: 
 
 ###### 15 
-"Thus says the LORD of hosts, the God of Israel, behold, I am bringing upon this city and upon all its towns all the disaster that I have pronounced against it, because they have stiffened their neck, refusing to hear my words." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Thus says the LORD of hosts, the God of Israel, behold, I am bringing upon this city and upon all its towns all the disaster that I have pronounced against it, because they have stiffened their neck, refusing to hear my words." 
 
 ***
 

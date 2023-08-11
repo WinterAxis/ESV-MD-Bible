@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Seeing the crowds, he went up on the mountain, and when he sat down, his disciples came to him. ## The Beatitudes 
 
@@ -147,7 +146,7 @@ For if you love those who love you, what reward do you have? Do not even the tax
 And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? 
 
 ###### 48 
-You therefore must be perfect, as your heavenly Father is perfect. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You therefore must be perfect, as your heavenly Father is perfect. 
 
 ***
 

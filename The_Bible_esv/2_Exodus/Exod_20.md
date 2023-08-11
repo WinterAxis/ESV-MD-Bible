@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And God spoke all these words, saying, 
 
@@ -81,7 +80,7 @@ An altar of earth you shall make for me and sacrifice on it your burnt offerings
 If you make me an altar of stone, you shall not build it of hewn stones, for if you wield your tool on it you profane it. 
 
 ###### 26 
-And you shall not go up by steps to my altar, that your nakedness be not exposed on it.' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall not go up by steps to my altar, that your nakedness be not exposed on it.' 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The men of Ephraim were called to arms, and they crossed to Zaphon and said to Jephthah, "Why did you cross over to fight against the Ammonites and did not call us to go with you? We will burn your house over you with fire." 
 
@@ -48,7 +47,7 @@ After him Abdon the son of Hillel the Pirathonite judged Israel.
 He had forty sons and thirty grandsons, who rode on seventy donkeys, and he judged Israel eight years. 
 
 ###### 15 
-Then Abdon the son of Hillel the Pirathonite died and was buried at Pirathon in the land of Ephraim, in the hill country of the Amalekites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Abdon the son of Hillel the Pirathonite died and was buried at Pirathon in the land of Ephraim, in the hill country of the Amalekites. 
 
 ***
 

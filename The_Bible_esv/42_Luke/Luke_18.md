@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And he told them a parable to the effect that they ought always to pray and not lose heart. 
 
@@ -132,7 +131,7 @@ And Jesus stopped and commanded him to be brought to him. And when he came near,
 And Jesus said to him, **"Recover your sight; your faith has made you well."** 
 
 ###### 43 
-And immediately he recovered his sight and followed him, glorifying God. And all the people, when they saw it, gave praise to God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And immediately he recovered his sight and followed him, glorifying God. And all the people, when they saw it, gave praise to God. 
 
 ***
 

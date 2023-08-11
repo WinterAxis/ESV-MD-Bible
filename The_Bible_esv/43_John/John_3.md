@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now there was a man of the Pharisees named Nicodemus, a ruler of the Jews. 
 
@@ -111,7 +110,7 @@ For he whom God has sent utters the words of God, for he gives the Spirit withou
 The Father loves the Son and has given all things into his hand. 
 
 ###### 36 
-Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. 
 
 ***
 

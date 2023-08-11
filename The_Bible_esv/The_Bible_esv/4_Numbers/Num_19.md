@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the LORD spoke to Moses and to Aaron, saying, 
 
@@ -69,7 +68,7 @@ And the clean person shall sprinkle it on the unclean on the third day and on th
 And it shall be a statute forever for them. The one who sprinkles the water for impurity shall wash his clothes, and the one who touches the water for impurity shall be unclean until evening. 
 
 ###### 22 
-And whatever the unclean person touches shall be unclean, and anyone who touches it shall be unclean until evening." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And whatever the unclean person touches shall be unclean, and anyone who touches it shall be unclean until evening." 
 
 ***
 

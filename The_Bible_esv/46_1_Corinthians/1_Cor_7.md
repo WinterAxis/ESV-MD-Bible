@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now concerning the matters about which you wrote: "It is good for a man not to have sexual relations with a woman." 
 
@@ -123,7 +122,7 @@ So then he who marries his betrothed does well, and he who refrains from marriag
 A wife is bound to her husband as long as he lives. But if her husband dies, she is free to be married to whom she wishes, only in the Lord. 
 
 ###### 40 
-Yet in my judgment she is happier if she remains as she is. And I think that I too have the Spirit of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet in my judgment she is happier if she remains as she is. And I think that I too have the Spirit of God. 
 
 ***
 

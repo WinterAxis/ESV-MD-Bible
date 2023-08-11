@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "When anyone brings a grain offering as an offering to the LORD, his offering shall be of fine flour. He shall pour oil on it and put frankincense on it 
 
@@ -51,7 +50,7 @@ You shall season all your grain offerings with salt. You shall not let the salt 
 And you shall put oil on it and lay frankincense on it; it is a grain offering. 
 
 ###### 16 
-And the priest shall burn as its memorial portion some of the crushed grain and some of the oil with all of its frankincense; it is a food offering to the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the priest shall burn as its memorial portion some of the crushed grain and some of the oil with all of its frankincense; it is a food offering to the LORD. 
 
 ***
 

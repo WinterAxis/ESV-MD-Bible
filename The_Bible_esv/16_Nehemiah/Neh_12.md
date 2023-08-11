@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 These are the priests and the Levites who came up with Zerubbabel the son of Shealtiel, and Jeshua: Seraiah, Jeremiah, Ezra, 
 
@@ -144,7 +143,7 @@ And they performed the service of their God and the service of purification, as 
 For long ago in the days of David and Asaph there were directors of the singers, and there were songs of praise and thanksgiving to God. 
 
 ###### 47 
-And all Israel in the days of Zerubbabel and in the days of Nehemiah gave the daily portions for the singers and the gatekeepers; and they set apart that which was for the Levites; and the Levites set apart that which was for the sons of Aaron. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And all Israel in the days of Zerubbabel and in the days of Nehemiah gave the daily portions for the singers and the gatekeepers; and they set apart that which was for the Levites; and the Levites set apart that which was for the sons of Aaron. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days John the Baptist came preaching in the wilderness of Judea, 
 
@@ -54,7 +53,7 @@ But Jesus answered him, **"Let it be so now, for thus it is fitting for us to fu
 And when Jesus was baptized, immediately he went up from the water, and behold, the heavens were opened to him, and he saw the Spirit of God descending like a dove and coming to rest on him; 
 
 ###### 17 
-and behold, a voice from heaven said, "This is my beloved Son, with whom I am well pleased." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and behold, a voice from heaven said, "This is my beloved Son, with whom I am well pleased." 
 
 ***
 

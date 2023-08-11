@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 As soon as Solomon finished his prayer, fire came down from heaven and consumed the burnt offering and the sacrifices, and the glory of the LORD filled the temple. 
 
@@ -69,7 +68,7 @@ then I will pluck you up from my land that I have given you, and this house that
 And at this house, which was exalted, everyone passing by will be astonished and say, 'Why has the LORD done thus to this land and to this house?' 
 
 ###### 22 
-Then they will say, 'Because they abandoned the LORD, the God of their fathers who brought them out of the land of Egypt, and laid hold on other gods and worshiped them and served them. Therefore he has brought all this disaster on them.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then they will say, 'Because they abandoned the LORD, the God of their fathers who brought them out of the land of Egypt, and laid hold on other gods and worshiped them and served them. Therefore he has brought all this disaster on them.'" 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There was a man of Benjamin whose name was Kish, the son of Abiel, son of Zeror, son of Becorath, son of Aphiah, a Benjaminite, a man of wealth. 
 
@@ -84,7 +83,7 @@ And when they came down from the high place into the city, a bed was spread for 
 Then at the break of dawn Samuel called to Saul on the roof, "Up, that I may send you on your way." So Saul arose, and both he and Samuel went out into the street. 
 
 ###### 27 
-As they were going down to the outskirts of the city, Samuel said to Saul, "Tell the servant to pass on before us, and when he has passed on, stop here yourself for a while, that I may make known to you the word of God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+As they were going down to the outskirts of the city, Samuel said to Saul, "Tell the servant to pass on before us, and when he has passed on, stop here yourself for a while, that I may make known to you the word of God." 
 
 ***
 

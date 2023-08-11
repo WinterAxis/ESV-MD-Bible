@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Therefore, while the promise of entering his rest still stands, let us fear lest any of you should seem to have failed to reach it. 
 
@@ -51,7 +50,7 @@ Since then we have a great high priest who has passed through the heavens, Jesus
 For we do not have a high priest who is unable to sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin. 
 
 ###### 16 
-Let us then with confidence draw near to the throne of grace, that we may receive mercy and find grace to help in time of need. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Let us then with confidence draw near to the throne of grace, that we may receive mercy and find grace to help in time of need. 
 
 ***
 

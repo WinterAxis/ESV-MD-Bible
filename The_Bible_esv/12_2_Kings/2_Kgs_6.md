@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now the sons of the prophets said to Elisha, "See, the place where we dwell under your charge is too small for us. 
 
@@ -102,7 +101,7 @@ and he said, "May God do so to me and more also, if the head of Elisha the son o
 Elisha was sitting in his house, and the elders were sitting with him. Now the king had dispatched a man from his presence, but before the messenger arrived Elisha said to the elders, "Do you see how this murderer has sent to take off my head? Look, when the messenger comes, shut the door and hold the door fast against him. Is not the sound of his master's feet behind him?" 
 
 ###### 33 
-And while he was still speaking with them, the messenger came down to him and said, "This trouble is from the LORD! Why should I wait for the LORD any longer?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And while he was still speaking with them, the messenger came down to him and said, "This trouble is from the LORD! Why should I wait for the LORD any longer?" 
 
 ***
 

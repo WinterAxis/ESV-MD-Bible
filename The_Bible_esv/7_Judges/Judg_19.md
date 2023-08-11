@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days, when there was no king in Israel, a certain Levite was sojourning in the remote parts of the hill country of Ephraim, who took to himself a concubine from Bethlehem in Judah. 
 
@@ -93,7 +92,7 @@ He said to her, "Get up, let us be going." But there was no answer. Then he put 
 And when he entered his house, he took a knife, and taking hold of his concubine he divided her, limb by limb, into twelve pieces, and sent her throughout all the territory of Israel. 
 
 ###### 30 
-And all who saw it said, "Such a thing has never happened or been seen from the day that the people of Israel came up out of the land of Egypt until this day; consider it, take counsel, and speak." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And all who saw it said, "Such a thing has never happened or been seen from the day that the people of Israel came up out of the land of Egypt until this day; consider it, take counsel, and speak." 
 
 ***
 

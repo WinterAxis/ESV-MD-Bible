@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 In those days, when again a great crowd had gathered, and they had nothing to eat, he called his disciples to him and said to them, 
 
@@ -117,7 +116,7 @@ For what does it profit a man to gain the whole world and forfeit his soul?
 For what can a man give in return for his soul? 
 
 ###### 38 
-For whoever is ashamed of me and of my words in this adulterous and sinful generation, of him will the Son of Man also be ashamed when he comes in the glory of his Father with the holy angels." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For whoever is ashamed of me and of my words in this adulterous and sinful generation, of him will the Son of Man also be ashamed when he comes in the glory of his Father with the holy angels." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Pashhur the priest, the son of Immer, who was chief officer in the house of the LORD, heard Jeremiah prophesying these things. 
 
@@ -57,7 +56,7 @@ Let that man be like the cities that the LORD overthrew without pity; let him he
 because he did not kill me in the womb; so my mother would have been my grave, and her womb forever great. 
 
 ###### 18 
-Why did I come out from the womb to see toil and sorrow, and spend my days in shame? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Why did I come out from the womb to see toil and sorrow, and spend my days in shame? 
 
 ***
 

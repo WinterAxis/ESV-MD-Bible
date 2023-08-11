@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 King Solomon was king over all Israel, 
 
@@ -105,7 +104,7 @@ He also spoke 3,000 proverbs, and his songs were 1,005.
 He spoke of trees, from the cedar that is in Lebanon to the hyssop that grows out of the wall. He spoke also of beasts, and of birds, and of reptiles, and of fish. 
 
 ###### 34 
-And people of all nations came to hear the wisdom of Solomon, and from all the kings of the earth, who had heard of his wisdom. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And people of all nations came to hear the wisdom of Solomon, and from all the kings of the earth, who had heard of his wisdom. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Abraham was old, well advanced in years. And the LORD had blessed Abraham in all things. 
 
@@ -204,7 +203,7 @@ and said to the servant, "Who is that man, walking in the field to meet us?" The
 And the servant told Isaac all the things that he had done. 
 
 ###### 67 
-Then Isaac brought her into the tent of Sarah his mother and took Rebekah, and she became his wife, and he loved her. So Isaac was comforted after his mother's death. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Isaac brought her into the tent of Sarah his mother and took Rebekah, and she became his wife, and he loved her. So Isaac was comforted after his mother's death. 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. 
 
@@ -66,7 +65,7 @@ We know that we are from God, and the whole world lies in the power of the evil 
 And we know that the Son of God has come and has given us understanding, so that we may know him who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. 
 
 ###### 21 
-Little children, keep yourselves from idols. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Little children, keep yourselves from idols. 
 
 ***
 

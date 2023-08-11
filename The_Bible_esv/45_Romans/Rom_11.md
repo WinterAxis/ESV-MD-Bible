@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I ask, then, has God rejected his people? By no means! For I myself am an Israelite, a descendant of Abraham, a member of the tribe of Benjamin. 
 
@@ -111,7 +110,7 @@ Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable ar
 "Or who has given a gift to him that he might be repaid?" 
 
 ###### 36 
-For from him and through him and to him are all things. To him be glory forever. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For from him and through him and to him are all things. To him be glory forever. Amen. 
 
 ***
 

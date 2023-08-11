@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "You shall make the altar of acacia wood, five cubits long and five cubits broad. The altar shall be square, and its height shall be three cubits. 
 
@@ -66,7 +65,7 @@ All the utensils of the tabernacle for every use, and all its pegs and all the p
 "You shall command the people of Israel that they bring to you pure beaten olive oil for the light, that a lamp may regularly be set up to burn. 
 
 ###### 21 
-In the tent of meeting, outside the veil that is before the testimony, Aaron and his sons shall tend it from evening to morning before the LORD. It shall be a statute forever to be observed throughout their generations by the people of Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In the tent of meeting, outside the veil that is before the testimony, Aaron and his sons shall tend it from evening to morning before the LORD. It shall be a statute forever to be observed throughout their generations by the people of Israel. 
 
 ***
 

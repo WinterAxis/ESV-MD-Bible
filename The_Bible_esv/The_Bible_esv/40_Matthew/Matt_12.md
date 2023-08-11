@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and they began to pluck heads of grain and to eat. 
 
@@ -150,7 +149,7 @@ But he replied to the man who told him, **"Who is my mother, and who are my brot
 And stretching out his hand toward his disciples, he said, **"Here are my mother and my brothers!** 
 
 ###### 50 
-For whoever does the will of my Father in heaven is my brother and sister and mother." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For whoever does the will of my Father in heaven is my brother and sister and mother." 
 
 ***
 

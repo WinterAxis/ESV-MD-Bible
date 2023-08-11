@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Inasmuch as many have undertaken to compile a narrative of the things that have been accomplished among us, 
 
@@ -243,7 +242,7 @@ because of the tender mercy of our God, whereby the sunrise shall visit us from 
 to give light to those who sit in darkness and in the shadow of death, to guide our feet into the way of peace." 
 
 ###### 80 
-And the child grew and became strong in spirit, and he was in the wilderness until the day of his public appearance to Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the child grew and became strong in spirit, and he was in the wilderness until the day of his public appearance to Israel. 
 
 ***
 

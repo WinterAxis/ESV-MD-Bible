@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 And you were dead in the trespasses and sins 
 
@@ -69,7 +68,7 @@ built on the foundation of the apostles and prophets, Christ Jesus himself being
 in whom the whole structure, being joined together, grows into a holy temple in the Lord. 
 
 ###### 22 
-In him you also are being built together into a dwelling place for God by the Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In him you also are being built together into a dwelling place for God by the Spirit. 
 
 ***
 

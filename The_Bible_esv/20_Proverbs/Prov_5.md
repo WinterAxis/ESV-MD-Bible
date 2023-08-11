@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 My son, be attentive to my wisdom; incline your ear to my understanding, 
 
@@ -72,7 +71,7 @@ For a man's ways are before the eyes of the LORD, and he ponders all his paths.
 The iniquities of the wicked ensnare him, and he is held fast in the cords of his sin. 
 
 ###### 23 
-He dies for lack of discipline, and because of his great folly he is led astray. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He dies for lack of discipline, and because of his great folly he is led astray. 
 
 ***
 

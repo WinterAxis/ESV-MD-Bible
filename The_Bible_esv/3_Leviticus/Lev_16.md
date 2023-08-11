@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses after the death of the two sons of Aaron, when they drew near before the LORD and died, 
 
@@ -105,7 +104,7 @@ And the priest who is anointed and consecrated as priest in his father's place s
 He shall make atonement for the holy sanctuary, and he shall make atonement for the tent of meeting and for the altar, and he shall make atonement for the priests and for all the people of the assembly. 
 
 ###### 34 
-And this shall be a statute forever for you, that atonement may be made for the people of Israel once in the year because of all their sins." And Aaron did as the LORD commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And this shall be a statute forever for you, that atonement may be made for the people of Israel once in the year because of all their sins." And Aaron did as the LORD commanded Moses. 
 
 ***
 

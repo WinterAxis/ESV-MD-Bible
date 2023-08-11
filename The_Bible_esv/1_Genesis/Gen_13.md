@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 So Abram went up from Egypt, he and his wife and all that he had, and Lot with him, into the Negeb. 
 
@@ -57,7 +56,7 @@ I will make your offspring as the dust of the earth, so that if one can count th
 Arise, walk through the length and the breadth of the land, for I will give it to you." 
 
 ###### 18 
-So Abram moved his tent and came and settled by the oaks of Mamre, which are at Hebron, and there he built an altar to the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Abram moved his tent and came and settled by the oaks of Mamre, which are at Hebron, and there he built an altar to the LORD. 
 
 ***
 

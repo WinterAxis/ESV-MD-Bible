@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now Adam knew Eve his wife, and she conceived and bore Cain, saying, "I have gotten a man with the help of the LORD." 
 
@@ -81,7 +80,7 @@ If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold."
 And Adam knew his wife again, and she bore a son and called his name Seth, for she said, "God has appointed for me another offspring instead of Abel, for Cain killed him." 
 
 ###### 26 
-To Seth also a son was born, and he called his name Enosh. At that time people began to call upon the name of the LORD. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+To Seth also a son was born, and he called his name Enosh. At that time people began to call upon the name of the LORD. 
 
 ***
 

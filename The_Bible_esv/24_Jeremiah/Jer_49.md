@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Concerning the Ammonites. Thus says the LORD: "Has Israel no sons? Has he no heir? Why then has Milcom dispossessed Gad, and his people settled in its cities? 
 
@@ -120,7 +119,7 @@ I will terrify Elam before their enemies and before those who seek their life. I
 and I will set my throne in Elam and destroy their king and officials, declares the LORD. 
 
 ###### 39 
-"But in the latter days I will restore the fortunes of Elam, declares the LORD." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"But in the latter days I will restore the fortunes of Elam, declares the LORD." 
 
 ***
 

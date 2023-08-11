@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Thus says the LORD to his anointed, to Cyrus, whose right hand I have grasped, to subdue nations before him and to loose the belts of kings, to open doors before him that gates may not be closed: 
 
@@ -78,7 +77,7 @@ By myself I have sworn; from my mouth has gone out in righteousness a word that 
 "Only in the LORD, it shall be said of me, are righteousness and strength; to him shall come and be ashamed all who were incensed against him. 
 
 ###### 25 
-In the LORD all the offspring of Israel shall be justified and shall glory." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In the LORD all the offspring of Israel shall be justified and shall glory." 
 
 ***
 

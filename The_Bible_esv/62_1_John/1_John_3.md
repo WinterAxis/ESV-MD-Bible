@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 See what kind of love the Father has given to us, that we should be called children of God; and so we are. The reason why the world does not know us is that it did not know him. 
 
@@ -75,7 +74,7 @@ and whatever we ask we receive from him, because we keep his commandments and do
 And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. 
 
 ###### 24 
-Whoever keeps his commandments abides in God, and God in him. And by this we know that he abides in us, by the Spirit whom he has given us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Whoever keeps his commandments abides in God, and God in him. And by this we know that he abides in us, by the Spirit whom he has given us. 
 
 ***
 

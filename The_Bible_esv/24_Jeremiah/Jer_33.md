@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word of the LORD came to Jeremiah a second time, while he was still shut up in the court of the guard: 
 
@@ -81,7 +80,7 @@ The word of the LORD came to Jeremiah:
 Thus says the LORD: If I have not established my covenant with day and night and the fixed order of heaven and earth, 
 
 ###### 26 
-then I will reject the offspring of Jacob and David my servant and will not choose one of his offspring to rule over the offspring of Abraham, Isaac, and Jacob. For I will restore their fortunes and will have mercy on them." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+then I will reject the offspring of Jacob and David my servant and will not choose one of his offspring to rule over the offspring of Abraham, Isaac, and Jacob. For I will restore their fortunes and will have mercy on them." 
 
 ***
 

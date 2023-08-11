@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then he cried in my ears with a loud voice, saying, "Bring near the executioners of the city, each with his destroying weapon in his hand." 
 
@@ -36,7 +35,7 @@ Then he said to me, "The guilt of the house of Israel and Judah is exceedingly g
 As for me, my eye will not spare, nor will I have pity; I will bring their deeds upon their heads." 
 
 ###### 11 
-And behold, the man clothed in linen, with the writing case at his waist, brought back word, saying, "I have done as you commanded me." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And behold, the man clothed in linen, with the writing case at his waist, brought back word, saying, "I have done as you commanded me." 
 
 ***
 

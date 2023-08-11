@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then Elisha the prophet called one of the sons of the prophets and said to him, "Tie up your garments, and take this flask of oil in your hand, and go to Ramoth-gilead. 
 
@@ -114,7 +113,7 @@ But when they went to bury her, they found no more of her than the skull and the
 When they came back and told him, he said, "This is the word of the LORD, which he spoke by his servant Elijah the Tishbite: 'In the territory of Jezreel the dogs shall eat the flesh of Jezebel, 
 
 ###### 37 
-and the corpse of Jezebel shall be as dung on the face of the field in the territory of Jezreel, so that no one can say, This is Jezebel.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+and the corpse of Jezebel shall be as dung on the face of the field in the territory of Jezreel, so that no one can say, This is Jezebel.'" 
 
 ***
 

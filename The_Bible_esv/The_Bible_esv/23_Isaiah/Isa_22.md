@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The oracle concerning the valley of vision. What do you mean that you have gone up, all of you, to the housetops, 
 
@@ -78,7 +77,7 @@ And I will fasten him like a peg in a secure place, and he will become a throne 
 And they will hang on him the whole honor of his father's house, the offspring and issue, every small vessel, from the cups to all the flagons. 
 
 ###### 25 
-In that day, declares the LORD of hosts, the peg that was fastened in a secure place will give way, and it will be cut down and fall, and the load that was on it will be cut off, for the LORD has spoken." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In that day, declares the LORD of hosts, the peg that was fastened in a secure place will give way, and it will be cut down and fall, and the load that was on it will be cut off, for the LORD has spoken." 
 
 ***
 

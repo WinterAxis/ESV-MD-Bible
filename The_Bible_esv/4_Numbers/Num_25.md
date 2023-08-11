@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 While Israel lived in Shittim, the people began to whore with the daughters of Moab. 
 
@@ -57,7 +56,7 @@ And the LORD spoke to Moses, saying,
 "Harass the Midianites and strike them down, 
 
 ###### 18 
-for they have harassed you with their wiles, with which they beguiled you in the matter of Peor, and in the matter of Cozbi, the daughter of the chief of Midian, their sister, who was killed on the day of the plague on account of Peor." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+for they have harassed you with their wiles, with which they beguiled you in the matter of Peor, and in the matter of Cozbi, the daughter of the chief of Midian, their sister, who was killed on the day of the plague on account of Peor." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Then I saw another mighty angel coming down from heaven, wrapped in a cloud, with a rainbow over his head, and his face was like the sun, and his legs like pillars of fire. 
 
@@ -36,7 +35,7 @@ So I went to the angel and told him to give me the little scroll. And he said to
 And I took the little scroll from the hand of the angel and ate it. It was sweet as honey in my mouth, but when I had eaten it my stomach was made bitter. 
 
 ###### 11 
-And I was told, "You must again prophesy about many peoples and nations and languages and kings." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I was told, "You must again prophesy about many peoples and nations and languages and kings." 
 
 ***
 

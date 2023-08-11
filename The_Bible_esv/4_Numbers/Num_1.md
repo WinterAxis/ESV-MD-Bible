@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The LORD spoke to Moses in the wilderness of Sinai, in the tent of meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying, 
 
@@ -165,7 +164,7 @@ The people of Israel shall pitch their tents by their companies, each man in his
 But the Levites shall camp around the tabernacle of the testimony, so that there may be no wrath on the congregation of the people of Israel. And the Levites shall keep guard over the tabernacle of the testimony." 
 
 ###### 54 
-Thus did the people of Israel; they did according to all that the LORD commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus did the people of Israel; they did according to all that the LORD commanded Moses. 
 
 ***
 

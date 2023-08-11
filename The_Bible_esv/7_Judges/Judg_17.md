@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 There was a man of the hill country of Ephraim, whose name was Micah. 
 
@@ -42,7 +41,7 @@ And the Levite was content to dwell with the man, and the young man became to hi
 And Micah ordained the Levite, and the young man became his priest, and was in the house of Micah. 
 
 ###### 13 
-Then Micah said, "Now I know that the LORD will prosper me, because I have a Levite as priest." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Micah said, "Now I know that the LORD will prosper me, because I have a Levite as priest." 
 
 ***
 

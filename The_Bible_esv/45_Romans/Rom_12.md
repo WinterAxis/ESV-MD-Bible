@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. 
 
@@ -66,7 +65,7 @@ Beloved, never avenge yourselves, but leave it to the wrath of God, for it is wr
 To the contrary, "if your enemy is hungry, feed him; if he is thirsty, give him something to drink; for by so doing you will heap burning coals on his head." 
 
 ###### 21 
-Do not be overcome by evil, but overcome evil with good. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Do not be overcome by evil, but overcome evil with good. 
 
 ***
 

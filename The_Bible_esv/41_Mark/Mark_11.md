@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Now when they drew near to Jerusalem, to Bethphage and Bethany, at the Mount of Olives, Jesus sent two of his disciples 
 
@@ -99,7 +98,7 @@ And they discussed it with one another, saying, "If we say, 'From heaven,' he wi
 But shall we say, 'From man'?"--they were afraid of the people, for they all held that John really was a prophet. 
 
 ###### 33 
-So they answered Jesus, "We do not know." And Jesus said to them, **"Neither will I tell you by what authority I do these things."** ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they answered Jesus, "We do not know." And Jesus said to them, **"Neither will I tell you by what authority I do these things."** 
 
 ***
 

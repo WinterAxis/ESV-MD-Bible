@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "Call now; is there anyone who will answer you? To which of the holy ones will you turn? 
 
@@ -84,7 +83,7 @@ You shall know also that your offspring shall be many, and your descendants as t
 You shall come to your grave in ripe old age, like a sheaf gathered up in its season. 
 
 ###### 27 
-Behold, this we have searched out; it is true. Hear, and know it for your good." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Behold, this we have searched out; it is true. Hear, and know it for your good." 
 
 ***
 

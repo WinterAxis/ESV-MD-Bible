@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 This is what the Lord God showed me: behold, he was forming locusts when the latter growth was just beginning to sprout, and behold, it was the latter growth after the king's mowings. 
 
@@ -54,7 +53,7 @@ But the LORD took me from following the flock, and the LORD said to me, 'Go, pro
 Now therefore hear the word of the LORD. "You say, 'Do not prophesy against Israel, and do not preach against the house of Isaac.' 
 
 ###### 17 
-Therefore thus says the LORD: "'Your wife shall be a prostitute in the city, and your sons and your daughters shall fall by the sword, and your land shall be divided up with a measuring line; you yourself shall die in an unclean land, and Israel shall surely go into exile away from its land.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore thus says the LORD: "'Your wife shall be a prostitute in the city, and your sons and your daughters shall fall by the sword, and your land shall be divided up with a measuring line; you yourself shall die in an unclean land, and Israel shall surely go into exile away from its land.'" 
 
 ***
 

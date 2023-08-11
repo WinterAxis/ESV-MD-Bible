@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Afterward Moses and Aaron went and said to Pharaoh, "Thus says the LORD, the God of Israel, 'Let my people go, that they may hold a feast to me in the wilderness.'" 
 
@@ -72,7 +71,7 @@ and they said to them, "The LORD look on you and judge, because you have made us
 Then Moses turned to the LORD and said, "O Lord, why have you done evil to this people? Why did you ever send me? 
 
 ###### 23 
-For since I came to Pharaoh to speak in your name, he has done evil to this people, and you have not delivered your people at all." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For since I came to Pharaoh to speak in your name, he has done evil to this people, and you have not delivered your people at all." 
 
 ***
 

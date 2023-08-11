@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The vision of Obadiah. ## Edom Will Be Humbled Thus says the Lord God concerning Edom: We have heard a report from the LORD, and a messenger has been sent among the nations: "Rise up! Let us rise against her for battle!" 
 
@@ -66,7 +65,7 @@ Those of the Negeb shall possess Mount Esau, and those of the Shephelah shall po
 The exiles of this host of the people of Israel shall possess the land of the Canaanites as far as Zarephath, and the exiles of Jerusalem who are in Sepharad shall possess the cities of the Negeb. 
 
 ###### 21 
-Saviors shall go up to Mount Zion to rule Mount Esau, and the kingdom shall be the LORD's. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Saviors shall go up to Mount Zion to rule Mount Esau, and the kingdom shall be the LORD's. 
 
 ***
 

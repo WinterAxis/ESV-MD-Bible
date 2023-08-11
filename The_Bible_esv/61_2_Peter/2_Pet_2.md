@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. 
 
@@ -69,7 +68,7 @@ For if, after they have escaped the defilements of the world through the knowled
 For it would have been better for them never to have known the way of righteousness than after knowing it to turn back from the holy commandment delivered to them. 
 
 ###### 22 
-What the true proverb says has happened to them: "The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+What the true proverb says has happened to them: "The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire." 
 
 ***
 

@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 "No one whose testicles are crushed or whose male organ is cut off shall enter the assembly of the LORD. 
 
@@ -78,7 +77,7 @@ You shall be careful to do what has passed your lips, for you have voluntarily v
 "If you go into your neighbor's vineyard, you may eat your fill of grapes, as many as you wish, but you shall not put any in your bag. 
 
 ###### 25 
-If you go into your neighbor's standing grain, you may pluck the ears with your hand, but you shall not put a sickle to your neighbor's standing grain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+If you go into your neighbor's standing grain, you may pluck the ears with your hand, but you shall not put a sickle to your neighbor's standing grain. 
 
 ***
 

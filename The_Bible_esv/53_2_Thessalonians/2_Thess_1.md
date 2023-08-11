@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Paul, Silvanus, and Timothy, To the church of the Thessalonians in God our Father and the Lord Jesus Christ: 
 
@@ -39,7 +38,7 @@ when he comes on that day to be glorified in his saints, and to be marveled at a
 To this end we always pray for you, that our God may make you worthy of his calling and may fulfill every resolve for good and every work of faith by his power, 
 
 ###### 12 
-so that the name of our Lord Jesus may be glorified in you, and you in him, according to the grace of our God and the Lord Jesus Christ. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that the name of our Lord Jesus may be glorified in you, and you in him, according to the grace of our God and the Lord Jesus Christ. 
 
 ***
 

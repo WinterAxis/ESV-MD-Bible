@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 The word that came to Jeremiah from the LORD: 
 
@@ -72,7 +71,7 @@ Therefore deliver up their children to famine; give them over to the power of th
 May a cry be heard from their houses, when you bring the plunderer suddenly upon them! For they have dug a pit to take me and laid snares for my feet. 
 
 ###### 23 
-Yet you, O LORD, know all their plotting to kill me. Forgive not their iniquity, nor blot out their sin from your sight. Let them be overthrown before you; deal with them in the time of your anger. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet you, O LORD, know all their plotting to kill me. Forgive not their iniquity, nor blot out their sin from your sight. Let them be overthrown before you; deal with them in the time of your anger. 
 
 ***
 

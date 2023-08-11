@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 After this Jesus revealed himself again to the disciples by the Sea of Tiberias, and he revealed himself in this way. 
 
@@ -78,7 +77,7 @@ So the saying spread abroad among the brothers that this disciple was not to die
 This is the disciple who is bearing witness about these things, and who has written these things, and we know that his testimony is true. 
 
 ###### 25 
-Now there are also many other things that Jesus did. Were every one of them to be written, I suppose that the world itself could not contain the books that would be written. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Now there are also many other things that Jesus did. Were every one of them to be written, I suppose that the world itself could not contain the books that would be written. 
 
 ***
 

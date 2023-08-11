@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 When Jeremiah finished speaking to all the people all these words of the LORD their God, with which the LORD their God had sent him to them, 
 
@@ -42,7 +41,7 @@ He shall come and strike the land of Egypt, giving over to the pestilence those 
 I shall kindle a fire in the temples of the gods of Egypt, and he shall burn them and carry them away captive. And he shall clean the land of Egypt as a shepherd cleans his cloak of vermin, and he shall go away from there in peace. 
 
 ###### 13 
-He shall break the obelisks of Heliopolis, which is in the land of Egypt, and the temples of the gods of Egypt he shall burn with fire.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He shall break the obelisks of Heliopolis, which is in the land of Egypt, and the temples of the gods of Egypt he shall burn with fire.'" 
 
 ***
 

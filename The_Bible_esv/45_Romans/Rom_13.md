@@ -4,7 +4,6 @@
 
 ***
 
-
 ###### 1 
 Let every person be subject to the governing authorities. For there is no authority except from God, and those that exist have been instituted by God. 
 
@@ -45,7 +44,7 @@ The night is far gone; the day is at hand. So then let us cast off the works of 
 Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. 
 
 ###### 14 
-But put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires. 
 
 ***
 
