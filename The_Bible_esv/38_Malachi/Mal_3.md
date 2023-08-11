@@ -1,0 +1,172 @@
+# Malachi 3
+#MDBible
+[[Mal_2|← Malachi 2]] | [[Malachi]] | [[Mal_4|Malachi 4 →]]
+
+***
+
+
+
+
+
+
+###### 1 
+
+
+"Behold, I send my messenger, and he will prepare the way before me. And the Lord whom you seek will suddenly come to his temple; and the messenger of the covenant in whom you delight, behold, he is coming, says the LORD of hosts. 
+
+
+
+
+
+###### 2 
+
+
+But who can endure the day of his coming, and who can stand when he appears? For he is like a refiner's fire and like fullers' soap. 
+
+
+
+
+
+###### 3 
+
+
+He will sit as a refiner and purifier of silver, and he will purify the sons of Levi and refine them like gold and silver, and they will bring offerings in righteousness to the LORD. 
+
+
+
+
+
+###### 4 
+
+
+Then the offering of Judah and Jerusalem will be pleasing to the LORD as in the days of old and as in former years. 
+
+
+
+
+
+###### 5 
+
+
+"Then I will draw near to you for judgment. I will be a swift witness against the sorcerers, against the adulterers, against those who swear falsely, against those who oppress the hired worker in his wages, the widow and the fatherless, against those who thrust aside the sojourner, and do not fear me, says the LORD of hosts. ## Robbing God 
+
+
+
+
+
+###### 6 
+
+
+"For I the LORD do not change; therefore you, O children of Jacob, are not consumed. 
+
+
+
+
+
+###### 7 
+
+
+From the days of your fathers you have turned aside from my statutes and have not kept them. Return to me, and I will return to you, says the LORD of hosts. But you say, 'How shall we return?' 
+
+
+
+
+
+###### 8 
+
+
+Will man rob God? Yet you are robbing me. But you say, 'How have we robbed you?' In your tithes and contributions. 
+
+
+
+
+
+###### 9 
+
+
+You are cursed with a curse, for you are robbing me, the whole nation of you. 
+
+
+
+
+
+###### 10 
+
+
+Bring the full tithe into the storehouse, that there may be food in my house. And thereby put me to the test, says the LORD of hosts, if I will not open the windows of heaven for you and pour down for you a blessing until there is no more need. 
+
+
+
+
+
+###### 11 
+
+
+I will rebuke the devourer for you, so that it will not destroy the fruits of your soil, and your vine in the field shall not fail to bear, says the LORD of hosts. 
+
+
+
+
+
+###### 12 
+
+
+Then all nations will call you blessed, for you will be a land of delight, says the LORD of hosts. 
+
+
+
+
+
+###### 13 
+
+
+"Your words have been hard against me, says the LORD. But you say, 'How have we spoken against you?' 
+
+
+
+
+
+###### 14 
+
+
+You have said, 'It is vain to serve God. What is the profit of our keeping his charge or of walking as in mourning before the LORD of hosts? 
+
+
+
+
+
+###### 15 
+
+
+And now we call the arrogant blessed. Evildoers not only prosper but they put God to the test and they escape.'" ## The Book of Remembrance 
+
+
+
+
+
+###### 16 
+
+
+Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. 
+
+
+
+
+
+###### 17 
+
+
+"They shall be mine, says the LORD of hosts, in the day when I make up my treasured possession, and I will spare them as a man spares his son who serves him. 
+
+
+
+
+
+###### 18 
+
+
+Then once more you shall see the distinction between the righteous and the wicked, between one who serves God and one who does not serve him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 3900 Sparks Drive SE, Grand Rapids, MI 49546 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+
+***
+
+[[Mal_2|← Malachi 2]] | [[Malachi]] | [[Mal_4|Malachi 4 →]]
